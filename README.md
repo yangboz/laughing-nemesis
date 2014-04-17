@@ -1,5 +1,9 @@
+![Screenshot of "Original_Book_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Original_book_cover.jpg)
+
 INTRODUCTION TO THE ALIEN RACES BOOK
 ================
+
+![Screenshot of "Book_Cover_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
 
 THE ALIEN RACES BOOK
 
