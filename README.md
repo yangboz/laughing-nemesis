@@ -13,6 +13,9 @@ THE ALIEN RACES BOOK
 * SHE
 * FINAL THOUGHTS
 
+
+* * *
+
 In 2004 I became friends with an Ukrainian guy called Petro that I met completely randomly at a bar by the beach...I was on holidays and he was there with some friends having some drinks.
 
 Anyway,we started talking with each other...our friendship started like that...he became a regular at my house where our families would get together.
