@@ -94,3 +94,23 @@ He said that he had received the book years before from one of his life-long dip
 That information(regular updates)was sent to him by mail,phone or online.
 
 He still gets regular updates that transmits to me.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The book has hundreds of side-notes on the pages(updates),small papers with related miscellaneous info attached to pages,photos stapled to them,etc...that is how we found out about relatively recent visits from aliens,their numbers,where it happened,etc...they had been updating the information they could get regularly.
+
+BUT he also said that there were only a handful of people that were in the "know" back then(USSR days)...the leader of the communist party and a couple of advisers,5 or 6 SMERSH agents(maybe more,up to 12),the commander of the armed forces AND the commander of the 3 armed forces branches(army,air-force and navy) and maybe a couple of scientists...
+
+He said that most likely there were more people in the know,specially in the militray,but he could't confirm that!(him and his friends did not recognize some of the names mentioned on the book)
+
+People have asked me about some of the illustrations of certain Alien Races on the book...this because some of them were literally copied off movies and/or video games(or not).
+
+Me and Petro asked ourselves the same thing,as we recognized some of them...and we did contact his father in order to get an answer.
+
+He told us that over the years the people that were adding/updating/printing the book has been using alien images from the media when they did not have a real photo or drawing from the witnesses...
+
+So sometimes they used images from movies and video games that better discribed the Alien Races in question...this according to the witnesses testmonies(description of their encounters).
+
+However he did say something else...something extremely interesting.
+
+He told us that 
