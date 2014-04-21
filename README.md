@@ -1,5 +1,9 @@
+![Screenshot of "Original_Book_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Original_book_cover.jpg)
+
 INTRODUCTION TO THE ALIEN RACES BOOK
 ================
+
+![Screenshot of "Book_Cover_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
 
 THE ALIEN RACES BOOK
 
@@ -26,4 +30,10 @@ He had in mind to go to the south of Spain and visit his brother(his brother was
 
 And so we went...we visited his brother and then went to Portugal to visit his father...
 
-When we were at his house he asked us a favor(he is old)...
+When we were at his house he asked us a favor(he is old)... if we could empty boxes from one of the rooms,as he wanted to make it into a bedroom for guests...
+
+We said "OK" and went to the room,excepting to see some old newspapers...
+
+Instead we found about 58 boxes full of old documents and books from the time when he was a diplomat...
+
+Some papers(documents) were in Russian... some were even from the USSR times.
