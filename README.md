@@ -72,3 +72,6 @@ We said "OK" and went to the room,excepting to see some old newspapers...
 Instead we found about 58 boxes full of old documents and books from the time when he was a diplomat...
 
 Some papers(documents) were in Russian... some were even from the USSR times.
+
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
