@@ -115,4 +115,8 @@ However he did say something else...something extremely interesting.
 
 He told us that amongst high-ranking diplomats there has been much "solid" discussion and debate about "a plan" involving centain media (from online to paper to hollywood to the video game industry)and centain security departments (specially from Japen,China,Canada,USA and Europe) in order to use the "right"(to them)images to describe the appearance of aliens...
 
-All the media involved 
+All the media involved was (in the end...either directly or because they owned the "mother" companies)owned for no more than 5 people...and that this was a concerted effort in order to get people(human-kind)used to the appearance and presence of alians...amongst us!
+
+He(Petro's father)also told us that some of the alien races images used in video games(and other media)were used in the book PRIOR to the release of the game and/or movies...
+
+Him and some of his friends had knowledge
