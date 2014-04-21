@@ -75,3 +75,22 @@ Some papers(documents) were in Russian... some were even from the USSR times.
 
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+
+Petro started reading/translating some of them and we realized that there was a lot of interesting,intriguing and even top-secert (at least at one time) documents!
+
+So we ask his father if we could keep this boxes for ourselves...he agreed and...we have to rent a van to take everything back to home with us.
+
+Week after week,in our house but mainly on the weekends,we went through all of the documents,translating them,cataloguing them by subject matter,or dates and places,etc...
+
+As,due to work,we were apart quite offen,we also did a lot of work on line.
+
+That's when we found THE BOOK...the book that lead to the videos I publised...(this one book that we has is undated and looks "modern",but we did find the cover -only the cover- for the same book but dating back to 1951!)
+
+We called his father later that year and asked him about the book...and he filled in the missing information...he said that amongst high ranking political officals there had always been the rumor of alien contact,but nothing concrete...
+
+He said that he had received the book years before from one of his life-long diplomat friends and had been updating the book until recently with information that friends of his sent him,or when they would get together to talk about "old times".
+
+That information(regular updates)was sent to him by mail,phone or online.
+
+He still gets regular updates that transmits to me.
