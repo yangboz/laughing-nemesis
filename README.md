@@ -113,4 +113,6 @@ So sometimes they used images from movies and video games that better discribed 
 
 However he did say something else...something extremely interesting.
 
-He told us that 
+He told us that amongst high-ranking diplomats there has been much "solid" discussion and debate about "a plan" involving centain media (from online to paper to hollywood to the video game industry)and centain security departments (specially from Japen,China,Canada,USA and Europe) in order to use the "right"(to them)images to describe the appearance of aliens...
+
+All the media involved 
