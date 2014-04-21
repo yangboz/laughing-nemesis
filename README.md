@@ -1,5 +1,7 @@
 ![Screenshot of "Original_Book_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Original_book_cover.jpg)
 
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
 INTRODUCTION TO THE ALIEN RACES BOOK
 ================
 
