@@ -142,3 +142,5 @@ this book is dedicated to the memory of PETRO
 The ARB book has been re-editd(information always being updated in all aspects,from new alien races to new reports and photos or illustrations) at least 12 times. That we know the first edition was printed in 1946 or early 1947.Then new editions were printed:1951(Ihave the cover,just the cover,of that one),1959,1968,1971,1980...all the way to (we believe)2011.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "THE_LOST_COPY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/THE_LOST_COPY.jpg)
