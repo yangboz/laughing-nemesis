@@ -170,4 +170,40 @@ In 1924,near Yekaterinoslav,Ukraine (now Dnipropetrovsk) the 3 daughters of a ce
 
 A farmer that lived near Captain Andriychuk's house said that he saw the Captain's daughters walking towards the woods maybe 2 hours before sunrise.
 
-Intrigued,
+Intrigued,he followed them at a distance.After walking for 30 minutes he described seeing "purple and red lights and mist" through the trees.
+
+He got closer and saw the 3 girls entering what he called "a floating bright windmill-like plane"...he also reported seeing 5 creatures as small as the children but with a "much old face".
+
+According to him the "windmill" then flew very slowly "into the stars" until he could not tell them apart.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+According to the farmer,he ran to Captain Andriychuk's house to warn him about the event.
+
+![Screenshot of "Suppose_farmer's_home"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_farmer's_home.jpg) This photo supposedlly shows the farmer's house.
+
+Upon arriving he knocked on the door but nobody answered...
+
+He then entered the house and found the Captain and his wife dead on their bed...their faces "were peaceful",as if they had died during their sleep.
+
+All their animals(3 dogs,1 horse and 2 goats) were dead as well.
+
+On the kitchen table there was a letter or note(not signed) with the handwriting that matched Sofiya, one of the daughters.
+
+It said:
+
+"We are going to the school in the moon,with our friends..."
+
+![Screenshot of "Suppose_photo_of_Sofiya"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+TO:
+
+SMERSH Agents Department IV-A1/12
+
+It is your duty to thoroughly investigate all events regarding any reports of visitations or incidents concerning creatures from other planet as well as with non-terrestrial creatures that dwell on our planet at the present or feature time.
+
+It is your duty to immediatly present to your Superior in charge(KL-44) any material evidence gathered during your investigations.
+
+It is 
