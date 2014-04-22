@@ -124,3 +124,21 @@ Him and some of his friends had knowledge that some of those security department
 This,obviously,we could not confirm...except for one of images on the book...the aliens used in the movie "Independence day" were known before the making (not even close) of the movie...by at least 8 years!
 
 Also,some of the photos on the ARB,had been tampered with...
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+And so,there you have it...the "story" behind the ALIEN RACES RUSSIAN SECERT BOOK!
+
+At least some of it...
+
+I hope you enjoy the book and all the revelations contained in it.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+this book is dedicated to the memory of PETRO
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+The ARB book has been re-editd(information always being updated in all aspects,from new alien races to new reports and photos or illustrations) at least 12 times. That we know the first edition was printed in 1946 or early 1947.Then new editions were printed:1951(Ihave the cover,just the cover,of that one),1959,1968,1971,1980...all the way to (we believe)2011.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
