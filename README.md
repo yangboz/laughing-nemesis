@@ -206,4 +206,48 @@ It is your duty to thoroughly investigate all events regarding any reports of vi
 
 It is your duty to immediatly present to your Superior in charge(KL-44) any material evidence gathered during your investigations.
 
-It is 
+It is your duty to keep absolute secrecy and concealment regarding your findings and conclusions during your invistigations except from your Superior in charge (KL-44).
+
+It is your duty to immediatly destory this book incase your physical being or personal safety is threadtened.
+
+The loss of this book while in your possession will result in serious consequences for your 2 SMERSH companion Agents as well as for your immediate relatives.
+
+Make use of your extensive trainning and love for our great Union.
+
+![Screenshot of "Chief_Marshal_"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Chief_Marshal_.jpg) Chief Marshal Konstantin A. Vershinin 1947
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+The book of alien races is both an instructions manual and a source of information to be used now and in the feature until the day it will be needed no more.Learn from it and added to it.
+
+When with Humans:
+
+1 - Investigate Events
+
+2 - Interrogate witnesses
+
+3 - Gather physical evidence
+
+When with Alens:
+
+1 - Engage with them
+
+2 - Follow them
+
+3 - Learn from them
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+YOUR ARE FORBIDDEN OF:
+
+SHOWING THIS BOOK TO ANYONE,TALKING ABOUT THIS BOOK TO ANYONE,TALKING ABOUT OR REVEALING YOUR INVISTIGATIVE ACTIVITIES TO ANYONE,DRINKING ALCOHOL ON AND OFF DUTY,CONSUMING DRUGS AND ON OFF DUTY,HELPING ALIEN RACES NO MATTER THE SITUATION OR REQUEST,CHOOSING "SIDES" WHEN PHYSICALLY AMONGST DIFFERENT ALIEN RACES OR DURING INVISTIGATIONS,AND OF ENGAGING IN SEXUAL ACTIVITIES WITH ANY MEMBERS OF ANY ALIEN RACE.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+THE ALIEN RACES
+
+![Screenshot of "Alien_Race_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_cover.jpg)
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
