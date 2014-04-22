@@ -119,4 +119,8 @@ All the media involved was (in the end...either directly or because they owned t
 
 He(Petro's father)also told us that some of the alien races images used in video games(and other media)were used in the book PRIOR to the release of the game and/or movies...
 
-Him and some of his friends had knowledge
+Him and some of his friends had knowledge that some of those security departments had actually created some of the images and then "released" to the proper channels...in order for those images to be known to the general public.
+
+This,obviously,we could not confirm...except for one of images on the book...the aliens used in the movie "Independence day" were known before the making (not even close) of the movie...by at least 8 years!
+
+Also,some of the photos on the ARB,had been tampered with...
