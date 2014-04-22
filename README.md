@@ -144,3 +144,13 @@ The ARB book has been re-editd(information always being updated in all aspects,f
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "THE_LOST_COPY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/THE_LOST_COPY.jpg)
+
+THE LOST COPY
+
+In the 1980's a copy of (edition) of this book was found on a field in Buryatia (east Siberia).
+
+Thay copy ended up in the hands of a KGB agent with friends in the media.
+
+After the collapse of the USSR some of the information (and images) in the book were leaked (sold?).
+
+Years later the information and some of the images started apprearing in TV series and video games.
