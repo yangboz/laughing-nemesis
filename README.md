@@ -154,3 +154,20 @@ Thay copy ended up in the hands of a KGB agent with friends in the media.
 After the collapse of the USSR some of the information (and images) in the book were leaked (sold?).
 
 Years later the information and some of the images started apprearing in TV series and video games.
+
+"Mass effect" being the most well known...
+
+(this information was handwritten on the book)
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+In 1924,near Yekaterinoslav,Ukraine (now Dnipropetrovsk) the 3 daughters of a certain Captain Andriychuk simply vanished.
+
+![Screenshot of "LOCATION_Dnipropetrovsk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
+
+
+![Screenshot of "Captain_Andriychuk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Captain_Andriychuk.jpg) Captain Andriychuk was of Russian descent and very little is known about him,except that he travelled a lot.
+
+A farmer that lived near Captain Andriychuk's house said that he saw the Captain's daughters walking towards the woods maybe 2 hours before sunrise.
+
+Intrigued,
