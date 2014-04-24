@@ -268,4 +268,57 @@ They can live up to 230 years.
 
 Last seen near Tokoyo(Japen) in 2005.
 
+* * *
+
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KIILY-TOKURT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KIILY-TOKURT.jpg)
+
+KILLY-TOKURT
+
+They come from constellation Vela,near the star Suhail AI Muhlif.
+
+They grow up to 2 meters high(6') and live up to 200 years.
+
+They can shap-shift and are very hard to detect.
+
+When they shap-shift the only thing they can not change is the size and colour of their eyes.
+
+They are one of the oldest known races.
+
+They do abduct humans.
+
+Last seen on earth in July of 2008.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_PLEYADIYANS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_PLEYADIYANS.jpg)
+
+PLEYADIYANS
+
+They come from solar systems surrounding the Pleyadiyes stars,more precisely from the planet Erra near the star Taygeta.
+
+They are associated with spiritual growth.
+
+They can grow up to 2.5 meters (8').
+
+They practice "sex cultivation",the distinct difference between their sexual expressions and their sensual emotions.
+
+Their ships are known as "beamships".
+
+Although regularly visiting Earth,they have remained mostly "silent" since 10.000 BC.
+
+They are one of the oldest known races.
+
+They continue to develop the neccessary mental skills to eventually reach their goal:an even higher "spiritual state".
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KYLLIMIR-AUK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KYLLIMIR-AUK.jpg)
+
+
+
