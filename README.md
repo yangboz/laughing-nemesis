@@ -532,3 +532,29 @@ Purpose of presence:unknown
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_ALLMAHULUK-START-163"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLMAHULUK-START-163.jpg)
+
+ALLMAHULUK-STRAT-163
+
+They were forced to leave Earth after lossing a battle against Reptoids in ancient India (date unknown),which there had been visiting for around 200 years.
+
+They have resumed their visits to Earth in 1948.
+
+Technologically this is a very advanced race.
+
+Their ships are offen invisible(to radar and the Human eye)and they wear some sort of clothing that makes them invisible as well.
+
+Supposedly they come from Jupiter or from one of its moons.
+
+Last sighting:Portugal,May 2005.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_AINANNA_GOLD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA_GOLD.jpg)
+
+AINANNA(no image)
+
+The memebers of this race are the cause why Humans coined the term "Martians".
+
+They come from constellation Gemini.
