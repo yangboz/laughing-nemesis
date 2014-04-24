@@ -385,4 +385,44 @@ Last sighting:Scotland,in 1996.
 
 ![Screenshot of "Alien_Race_MAZAREK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAZAREK.jpg)
 
+MAZAREK
 
+They come from consellation Camelopardalis.
+
+From the 1300's to the early 1900's(our calendar)they were not allowed to leave their planet by other alien races.
+
+They are very violent and "predatory" race.
+
+They are known to be allies of the race Maitre.
+
+They grow up to 1.6 meters (5').
+
+Last seen on Earth: August of 2001.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_AL-GRUUALIX"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AL-GRUUALIX.jpg)
+
+AL -GRUUALIX
+
+They come from constellation Cetus,near Deneb Kaitos Shemali.
+
+Although there are ofen confused with reptilian races,they do not share anything with them except their appearance.
+
+Their height is around 2 meters(6') and they can live up to 350 years.
+
+This is one of 21 races that are known to have more than 2 genders(sexes).
+
+This race has 8 different genders and all of then can reproduce with each other.
+
+The purpose for their visits Earth is unknown.
+
+Last sighting was near Lima(Peru) in December of 2004.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_THE_MESSENGERS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_MESSENGERS.jpg)
