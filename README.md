@@ -253,3 +253,9 @@ THE ALIEN RACES
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_ALLGRUULK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLGRUULK.jpg)
+
+ALLGRUULK(aka "the builders")
+
+They come from constellation Sculptor.
+
+The derive from an ancient race of reptilians that has gone extinct.
