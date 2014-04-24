@@ -551,10 +551,44 @@ Last sighting:Portugal,May 2005.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_AINANNA_GOLD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA_GOLD.jpg)
+![Screenshot of "Alien_Race_AINANNA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA.jpg)
 
 AINANNA(no image)
 
 The memebers of this race are the cause why Humans coined the term "Martians".
 
 They come from constellation Gemini.
+
+They have had permanent bases on Mars for thousands of years,wehre they mine some sort of a gold-like material.
+
+![Screenshot of "Alien_Race_AINANNA_GOLD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA_GOLD.jpg)
+
+First recorded visit to Earth:1235 BC in Japen.
+
+Last sighting:Madagascar,2003.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_INDUGUTK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_INDUGUTK.jpg)
+
+INDUGUTK(aka "Tall white")
+
+This race has several bases on and in the Moon,where they mine (unkown material).
+
+They use "slaves" to do most of their work...these "slavesz" are extremely well taken care of,and the Indugutk see them as "indispensable".
+
+Their operations on and in the Moon are very secretive.
+
+They are in almost permanent contact with High-ranking officals from the USA,China and Russian Fed. governments.
+
+They have the ability to shape-shift into an almost perfect Human form.
+
+They are also known as "Men in Black",as they use special dark suits(to protect their skin) when in Human-shape while conducting special operations on Earth.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
