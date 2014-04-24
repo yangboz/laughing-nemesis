@@ -259,3 +259,13 @@ ALLGRUULK(aka "the builders")
 They come from constellation Sculptor.
 
 The derive from an ancient race of reptilians that has gone extinct.
+
+They are specialist at building ships and other devices needed for deep space travelling.
+
+They are also space-travellers themselves,searching for new raw materials.
+
+They can live up to 230 years.
+
+Last seen near Tokoyo(Japen) in 2005.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
