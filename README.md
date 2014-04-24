@@ -250,6 +250,8 @@ THE ALIEN RACES
 
 ![Screenshot of "Alien_Race_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_cover.jpg)
 
+* * *
+
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_ALLGRUULK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLGRUULK.jpg)
@@ -320,5 +322,67 @@ They continue to develop the neccessary mental skills to eventually reach their 
 
 ![Screenshot of "Alien_Race_KYLLIMIR-AUK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KYLLIMIR-AUK.jpg)
 
+
+KYLLIMIR-AUK
+
+They comes from constellation Volans.
+
+The sightings of this race on Earth are rare and they are considered as "a mystery race".
+
+It is said that they were forbidden to visit Earth around the year 1.000 BC,but they did not stop visiting Earth compeletely...
+
+Last seen on Earth:December of 1989.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KURS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KURS.jpg)
+
+KURS(aka "God of Lands")
+
+Believed to be related to the race Anunnaki.
+
+They come from the planet Dillimuns.
+
+They are the race "behind" the story of Enlil and Ninlil.
+
+They were directly involved on the developement of the Human race during our early stages.
+
+After centuries away from Earth they have recently returned.
+
+Their own leader is amongst the most recent visitors.
+
+They will now stay on Earth permanently... they will have an important role in the years to come.
+
+They spend time immersed in a precious gold-like liquid that presumably extends their life span.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_HAV-HANNUAE-KONDRAS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_HAV-HANNUAE-KONDRAS.jpg)
+
+HAV-HANNUAE-KONDRAS
+
+They come from galaxy Sextans Dwarf SPH.
+
+First visited Earth in 934 AD in the area that we now know as Romania.
+
+They often abduct and kill humans...they also drain and drink the blood of Humans as well as the blood of animals.
+
+They are responsible for the myth of vampires.
+
+Sereral Human governments know and accept their actions.
+
+Then Human bodies that they "used" are never returned.
+
+Last sighting:Scotland,in 1996.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_MAZAREK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAZAREK.jpg)
 
 
