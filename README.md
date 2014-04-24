@@ -426,3 +426,24 @@ Last sighting was near Lima(Peru) in December of 2004.
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_THE_MESSENGERS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_MESSENGERS.jpg)
+
+"THE MESSENGERS"(no image provided)
+
+Probably the most enigmatic of all alien races...not much is known about them.
+
+They visit Earth around every 300 years.
+
+Their next visit is supposed to happen anytime now...
+
+They do not reveal themselves,they do not make direct contact with humans.
+
+They leave carvings,drawings and writtings on rocks as well as symbols in historical monuments.
+
+Their ships have the shape of a "tear drop" and are silver in colour.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_RAMAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_RAMAY.jpg)
+
