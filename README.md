@@ -490,3 +490,45 @@ They have colonized over 40 planets outside our solar system...so far!
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_RAK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_RAK.jpg)
+
+Of the 58 races desribed here,this is the race that least visited Earth(that we know of so far)... only 5 times.
+
+They visited the area we know as the middle-east and that created the belief in the "Jinn"(or "genies") in Islamic mythology.
+
+According to some  Muslims scholars they inhabit an unseen world in a dimension beyond the existing dimensions of our universe.
+
+According to the reports from other alien races,they stopped visiting Earth because their immuse system could not copy with Earth's fauna and flora.
+
+Last recorded visit: 712 AD.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_THE_INVISIBLES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_INVISIBLES.jpg)
+
+THE "INVISIBLES"(no image)
+
+This race is know as have been "seen" near high-security areas.
+
+They are almost completely invisible to the naked eye.
+
+Both the USA and Russian military have developed technlogy that allows them to track them down on radar (just the ships).
+
+3 things about konwn about this race:
+
+1-they leave a sour smell when they are near.
+
+2-when they are near windows you can "see" their reflections as a "smudged-like" figure (have been caught on cctv footage)
+
+3- when many dogs (or only 1)start barking with no apparent reason,it is possible that they are nearby (or Reptoids/Reptilains)
+
+They come from constellation Mensa.
+
+Purpose of presence:unknown
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ALLMAHULUK-START-163"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLMAHULUK-START-163.jpg)
