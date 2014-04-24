@@ -447,3 +447,46 @@ Their ships have the shape of a "tear drop" and are silver in colour.
 
 ![Screenshot of "Alien_Race_RAMAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_RAMAY.jpg)
 
+RAMAY
+
+They come from Capella,constellation Auriga.
+
+Known to be a peaceful race.They try to co-exist with Humans.
+
+They "created" the Mayan civilization (culture) by placing humans from different places on Earth  in South America.
+
+They are race of "scientists"...They taught the Mayans about astronomy and "time".
+
+They left Earth when the Mayans were at their highest splendor.
+
+After that the Mayans started the well known "blood sacrifices" in their honor.
+
+This race has been on Earth many times after that...
+
+Last sighting: Bora-Bora in 2001.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_MOOVIANTHAN-KAYPHIK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MOOVIANTHAN-KAYPHIK.jpg)
+
+MOOVIANTHAN-KAYPHIK(aka "shinning ones")
+
+They come from constellation Vulpecula.
+
+They have met with (at least) 2 USA Presidents as well as with USSR and (now)Russian leaders and some high-ranking officials.
+
+They supply limited amounts of their technology to humans in exchange for the "freedom" to conduct abductions.They do not involve other alien races in this process.
+
+They had a big role of Siberian and Tibetan culture.
+
+They still have bases in those areas hidden in the north-face of moutains.
+
+They have colonized over 40 planets outside our solar system...so far!
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_RAK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_RAK.jpg)
