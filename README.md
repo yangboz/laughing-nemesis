@@ -592,3 +592,213 @@ They are also known as "Men in Black",as they use special dark suits(to protect 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+KILLIMAT-ARR(aka K-ARR)
+
+They come from constellation Crux,near Gacrux.
+
+It is a very hard to track down or spot.
+
+Both the USA and Russian military have developed  a special camera and radar system that allows to spot them when they are on Earth.
+
+But even then,they have only been sighted 8 times.
+
+The purpose of their presence is unknown.
+
+When they are sighted it is usually in the area known as the Bermuda Trangle.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+2017(no image)
+
+They have only contacted Humans one time:in the USSR in 1935.
+
+According to reports they spoke some kind of Slavic dialect.
+
+They left a writen message with about 10 sentences.
+
+They come from galaxy UDFJ-39546284.
+
+Estimated distance from Earth (our standard) is 13.2 billion light years.
+
+They travel by using what other alien races call "worm-hole",which allows them to "bend" space.
+
+(note from myself and Petro)
+
+On the original ARB(our copy/edition),9 of the sentences left by this race are "blacked-out"...they only one that is not is this one:
+
+"2017-2022"
+
+According to reports they were tall,had blonde long hair and "smelled like flowers"
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+EL-MANOUK
+
+They come from constellation Grus,near the star Alnair.
+
+They are one of most peaceful races.
+
+They co-created the alliance of the 5 races("Council of the Five"),but are not part of it.
+
+The "Council of the Five" are a group of 5 alien races that protect Humans against less peaceful races.
+
+They "coined" the sentence:"5 universes,2500 species,1 race"
+
+The Council is supposed to meet on Earth during the last 10 days of August of 2013,the reason being the fact that Earth has been receiving "too many" visits from new races in the past 500 years.
+
+Last sighting on the Earth: near the Sea of Cortez,September 2002.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+JIGHANTIK
+
+Maintains sporadic contacts with 3 Earth governments,but not the most powerful ones(not USA,Russia or China).
+
+Considered to have a violent nature by other races.
+
+They have been visiting Earth for 3.000 years.
+
+They come from constellation Horologium and are known to have as allies the race Maitre.
+
+Last sighting:near Huston,USA,Feburary 1 of 2003.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+JEFOK
+
+They come from constellation Indus.
+
+They are known by other races as "peace-makers".
+
+They are very advanced technologically.
+
+Their first sighting on Earth dates back to 1500 BC.
+
+They met with JFK 3 weeks before he was killed.
+
+They have also (around the same time) met with other Human world leaders.
+
+They have not been seen on Earth since JFK's death.
+
+In 1965 they gave a message to the Human leaders that ran countries with nuclear capability (content unknown).
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+DORSAY
+
+They grow to a maximum height of 0.5 meters (1.6').
+
+They have visited Earth at least 250 times.
+
+They come from Cassiopeia,where they have 2 home-planets.
+
+They eat other alien races as well as Humans.
+
+Their race is at least 4 billion years old and they have been in a constant state-of-war with another alien species for 2 billion years.
+
+Last sighting on Earth: November 2001,Italian Alps.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+MAGELL
+
+Known to be a very peaceful race.
+
+They have 2 permanent bases somewhere in South of America.
+
+They are 100% nocturnal,do not interact with Humans and are described by other alien races as "shy".
+
+They harvest insects and rodents by the many thousands on a monthly basis...reason:unknown.
+
+At least 3 of them have been under Brasilian military custody for the past 12 years.
+
+Last sighting:near Oaxaca,Mexico,in 2003
+
+They are visited by their own kind (race) every 20 years...the next visit should be around 2016.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+AKART
+
+They come from constellation Sextans.
+
+One of their ships crashed outside of Varginha(Brazil) in 1996.
+
+2 of its occupants are under USA custody,after having paid billions of dollars to the Brazilian government.
+
+They have the fastest ships of any known alien races.
+
+Last sighting:February 2002,near Varginha (Brazil)...again!
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+MAITRE
+
+They have 2 home-planets in constellation Megopei.
+
+They have the same average height as Humans and are considered by many alien races as "parasites".
+
+Visited Earth for the first time during the pre-historic period (date unknown).
+
+Abduction of Humans is carried out openly.
+
+They have the goal of colonizing Earth...that has not happened because of protection from other alien races,such as the one's in the "Coucil of the 5".
+
+They are hermaphrodites and their life span is 120 years.
+
+They have colonized at 26 planets.
+
+They have abducted at least 5.000 Humans(male).
+
+They have visited Earth at least 200 times.
+
+Last sighting:September 2006 near Nome,Alaska,USA.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+DRIES
