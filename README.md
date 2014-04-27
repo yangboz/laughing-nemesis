@@ -802,3 +802,32 @@ Last sighting:September 2006 near Nome,Alaska,USA.
 ![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
 
 DRIES
+
+Their height is around 2.5 meters(8')
+
+They have a very complex structure of the skull.
+
+Visited Earth at least 20 times.
+
+They carry out Human abductions which they use for Human reproduction.
+
+They have abducted at least 520 Humanns(males and females).
+
+They come from the "third" star in constellation Cetus.
+
+They have 2 home-planets and  have colonized at least 40 planets with the help of "slaves".10 of those planets were taken with the use of force.They work together with 3 other races. They mostly eat animal protein derived products.
+
+According to alien reports,they are not "mentally/spiritually" prepared to interact with most other races.
+
+Their 2 home-planets chemical composition is similar to Earth.
+
+They are supposed to "reveal" themselves to Humans in an open manner in 2022.
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+
+LANG
