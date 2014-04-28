@@ -611,7 +611,7 @@ When they are sighted it is usually in the area known as the Bermuda Trangle.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_2017"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_2017.jpg)
 
 2017(no image)
 
@@ -640,7 +640,7 @@ According to reports they were tall,had blonde long hair and "smelled like flowe
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_EL-MANOUK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_EL-MANOUK.jpg)
 
 EL-MANOUK
 
@@ -663,7 +663,7 @@ Last sighting on the Earth: near the Sea of Cortez,September 2002.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_JIGHANTIK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_JIGHANTIK.jpg)
 
 JIGHANTIK
 
@@ -682,7 +682,7 @@ Last sighting:near Huston,USA,Feburary 1 of 2003.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_JEFOK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_JEFOK.jpg)
 
 JEFOK
 
@@ -707,7 +707,7 @@ In 1965 they gave a message to the Human leaders that ran countries with nuclear
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_DORSAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_DORSAY.jpg)
 
 DORSAY
 
@@ -728,7 +728,7 @@ Last sighting on Earth: November 2001,Italian Alps.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_Alien_Race_MAGELL"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Alien_Race_MAGELL.jpg)
 
 MAGELL
 
@@ -751,7 +751,7 @@ They are visited by their own kind (race) every 20 years...the next visit should
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_AKART"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AKART.jpg)
 
 AKART
 
@@ -770,7 +770,7 @@ Last sighting:February 2002,near Varginha (Brazil)...again!
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAITRE.jpg)
 
 MAITRE
 
@@ -799,7 +799,7 @@ Last sighting:September 2006 near Nome,Alaska,USA.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_DRIES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_DRIES.jpg)
 
 DRIES
 
@@ -828,6 +828,6 @@ They are supposed to "reveal" themselves to Humans in an open manner in 2022.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
+![Screenshot of "Alien_Race_LANG"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_LANG.jpg)
 
 LANG
