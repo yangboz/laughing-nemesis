@@ -728,7 +728,7 @@ Last sighting on Earth: November 2001,Italian Alps.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_Alien_Race_MAGELL"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Alien_Race_MAGELL.jpg)
+![Screenshot of "Alien_Race_Alien_Race_MAGELL"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAGELL.jpg)
 
 MAGELL
 
@@ -831,3 +831,169 @@ They are supposed to "reveal" themselves to Humans in an open manner in 2022.
 ![Screenshot of "Alien_Race_LANG"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_LANG.jpg)
 
 LANG
+
+Small spices growing only up to 70 centimeters(2').
+
+They come from the "sixth star" in constellation Coma Berenices.
+
+They have 3 home-planets(maybe 4) and have colonized at least 10.
+
+They were one the first races to visit Earth.
+
+They were the race that started the "stories" about Fairies.
+
+2 alien races claim that they have abducted over 10 million Humans throughout History(that number is highly disputed by 
+
+2 other races...they state that the number is highly lower...and 1 race even made a statement to Russian President saying that the race Lang has bever abducted any Human).
+
+Last sighting: New Zealand,in 2006... a group of 20 members.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_SMD.jpg)
+
+SMAD(no image)
+
+They come from Planet Svokk,constellation Battteray.
+
+They ships have a conical shape.
+
+They resemble Humans in appearance.
+
+According to 1 alien race they only have 6 ships left.
+
+They colonized 20 planets,18 of them were inhabited.
+
+They first visited Earth 2500 years ago and are very interested in our religious beliefs.
+
+They are a race in decline ("weakening",according to other alien races.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.jpg)
+
+TENGRI-GENGRI
+
+They come from planet Tengri(galactic sector 56,star system F-1342).
+
+They live underground and have popluation of 10 million.
+
+First visit to Earth:10.000 years ago.
+
+They do not need  an atmosphere or water to survive.
+
+They have 1 ship that can accomodate 5 million of their kind.
+
+They have had contact with Human governments throughout History.
+
+Last known sighting:near Buenos Aires,Argentina,in 2003.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_GRAYSLI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_GRAYSLI.jpg)
+
+GRAYSLI
+
+Their height averages the same as that of Humans and they are covered in a soft silky hair.
+
+They have 2 home-planets in the Virgo star system.
+
+They have visited Earth at least 12 times.
+
+Their first visit happened during the era(dinasties) of Egypt's Pharaohs,around 3.000 years ago.
+
+They spent 10 UN-interrupted years there during that time.
+
+The Djoser pyramid was built in their honour.
+
+They have been keeping a close look at Human's development for the past 200 year,knowing that some powerful humans can (and are) be mislead by some alien races (disguised as "humans").
+
+Only 6 of them travel each time in their ships.
+
+Last sightings: July-2002 and February-2004
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ANUNAKENE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ANUNAKENE.jpg)
+
+ANUNAKENE(aka Anunnaki)
+
+They come from planet Nibirue (aka Nibiru).
+
+Their planet is part of the same solar system as Earth,but with a much longer orbit...it comes closer to the Sun every 4.000 years,and not every 3.500 years as commonly accepted.
+
+They resemble Humans but are higher (2.5 meters/8') and more muscular.
+
+When they first visited Earth there were already other races established here...some malevolent and with supernatural powers.
+
+The Anunakene defeated them and became the most powerful race on Earth.
+
+They genetically engineered the most intelligent non-alien beings on Earth (us...at the time not much more than smart primates) in order to have a race of slaves at their disposal.
+
+At the time Samael and Lilith were the Annunakene King and Queen.
+
+They were not aware of the presence of Reptilians on Earth.
+
+They only cooperate with one other race:the Zeta Reticulai.Not to be confused with the Solipsi Rai (aka "grays").
+
+Eventually they left Earth (unknown reasons) but before they left they created a sub-species of the Zeta...this specises eventually became rulers of Egypt (Pharaohs) until th Reptilians infiltrated them (as Temple Priests) and ended their Reign.
+
+They gave birth to the legends about "giants".
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ANUNAKENE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ANUNAKENE.jpg)
+
+ANUNAKENE(aka Anunnaki)
+
+They will return one day as promised by themselves,however the date of their return is still mystery.
+
+They do know all that is happening on Earth as well as in other planets where they had influence (and/or still have).
+
+The proximity of planet Nibirue (aka Nibiru) dose cause cosmic instability and weather-related repercussions in all planets of our solar system,but dose not cause the amount of destruction that it is usually accepted and believed.
+
+How far they are it is still mystery.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_AFIM"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AFIM.jpg)
+
+AFIM
+
+They come from constellation Lyra.
+
+They call themselves "Afim Spiantsy" because of a war that they fought against a race called "Spiantsy"...the "Spiantsy" race had 12 times more members and 35 times more ships and resources than "Afim"...but the "Afim" won in the end...
+
+So they added the "Spiantsy" name to their own race-name,as "warning" to other races...
+
+They are smaller than Humans in stature and their skin is covered with blue spot,darker for males and lighter in females.
+
+They planet is called Crimea Ai-Petri.
+
+Technologically,they are extremely developed...they can travel from their planet to Earth in 20 earth-time.
+
+They do not need oxygen,they do have an atmosphere but it is composed mainly of an hydrogen-mix environment.
+
+They have colonized 10 planets in a non-violent way.
+
+When they are close to Humans they can become invisible,but humans when around them will feel a certain amount of unexplained anxiety.
+
+Their ships are small and spherical in shape.One of the reasons they visit us is to study what they call "Human Deviation",in order to determine the development of the Human race.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_SOLIPSIRAI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_SOLIPSIRAI.jpg)
+
+SOLIPSI RAI
