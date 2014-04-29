@@ -1021,3 +1021,39 @@ They are Solipsi Rai,but we call them..."grays"!
 ![Screenshot of "Alien_Race_PUXHITY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_PUXHITY.jpg)
 
 PUXHITY(no image)
+
+This race war very influential in some South and Central American culture.
+
+At one time they had over 2.000 members living amongst Humans in those regions...until one day when most of them left,leaving behind only 25 of their own...Humans then killed them.
+
+They have not returned to Earth since that "incident".
+
+They were known to be very tall...some reports from one alien race say that some of them were as tall as 4 meters high(13').
+
+The reasons why the local Humans killed the 25 Puxhity's is unknown.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_X5-TYKUT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_X5-TYKUT.jpg)
+
+X5-TYKUT
+
+This race was created by the race Maitre in order to be used as slaves...and that is still what they serve for.
+
+They are often sent by the Maitre to security-sensitive regions,working as  messengers and also to conduct abductions.
+
+They can live forever as they are not organic...however the raw materials that the Maitre need to "build" one are very rare. So there are not many of them (estimation: less than 300).
+
+They are able to use "rational thinking" as well as flying ships and many other tasks.
+
+Last seen on Earth in July-1997,near Brisbane,Australia.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_TANZANY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TANZANY.jpg)
+
+TANZANY
