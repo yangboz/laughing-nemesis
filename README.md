@@ -1322,3 +1322,155 @@ Their location on Earth is...unknown !
 TARICE(no image)
 
 Their origin is unknown.
+
+They are often seen near(or flying by) volcanoes.(Identified due to the exquisite nature of their ships)
+
+They have never contacted Humans and there are no reports of violence or abductions.
+
+Even though they are discreet their presence on Earth is frequent and they do not try to hide from view.There are several contradictory reports about their appearance.
+
+Last sighted:Off the coast of Norway,in 2000.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_PURITAV-ILLUMU"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_PURITAV-ILLUMU.jpg)
+
+PURITAV-ILLUMU(aka Nosyv-7)
+
+Their origin is unknown.
+
+They are often sighted in the northwest of the USA (specially in the Oregon area).
+
+They have a special interest about Earth's oceans and are known to have underwater ships (aka USO's).
+
+In the 1980's and 1990's they almost crashed a few times against US Navy ships while the americans were testing new sonar and radar systems.
+
+They are peaceful and mostly nocturnal.
+
+Last sighted in the year 2000 near San Francisco,USA.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_X-1Z"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_X-1Z.jpg)
+
+X-1Z(aka "X",no image)
+
+Only sighted 2 times on Earth.
+
+According to reports from other races they are able to shape-shift as many as 4 times in 10 seconds.
+
+Their origin is unknown.
+
+They conduct Human abductions and perform medical experiments on the subjects.
+
+The have been visiting Earth since the mid-1500's .
+
+They only 2 confirmed sightings happened near Elazig,Turkey.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_CARAVELDI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_CARAVELDI.jpg)
+
+CARAVELDI
+
+Known to be (at times) extremely dangerous to Humans as well as to other alien races.
+
+They come from constellation Chamaeleon.
+
+They have been permanently involved in conflicts with a few other races for over 500 (Earth) years.
+
+They are rarely seen on Earth.
+
+They live up to 150 years.
+
+Reportedly they are 3 meters tall (9') and have 4 arms.
+
+Last sighting was near New Orleans,USA,in 1976.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ELFFAF"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ELFFAF.jpg)
+
+ELFFAF
+
+They come from constellation Bootes,near Asellus Primus.
+
+They also resemble the "grays" but are not "relatd".
+
+This race has 4 different genders and they are known to be benevolent.
+
+The purpose of their visits is unknown,but they seem to have a special interest on raw materials/minerals (?) as they have been  often sighted near old mines.
+
+Last sighting:San Isidro de EI General,Costa Rica,in 2005.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_MATRAX"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MATRAX.jpg)
+
+MATRAX
+
+Despite their appearance (installs fear in Humans when sighted) this race is not known to be agressive.
+
+They can live up to 400 years.
+
+They come from constellation Delphinus,near Sualocin.
+
+They have been visiting Earth for at least 4.000 years,but were sighted quite often during the 19th century.
+
+They served as inspiration for the alien race in the movie "Independence Day".(note of Petro and me:this is other -second- mention about a race being used as inspiration for that same movie)
+
+Last sighting happened near Marseille,France,in 1996.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_TISAR-3"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TISAR-3.jpg)
+
+TISAR-3
+
+Their origin is unknown but there are reports stating that it takes them near 2 Earth years to get to this planet.
+
+They are the survivors of an extinct Reptoid race and do not possess the same level of technology or knowledge as other races visiting Earth.They do have some Human characteristics,such as skin.
+
+In 1977 or 1978,near Siena(Italy),2 of their species were captured after landing behind a church in ruins...3 days later they were transfered to a USA air base still in Italy and finally to an undisclosed location where,supposedly,they still remain...contacts have mentioned somewhere in the South Pacific or in another USA base near Japan.
+
+The USSR APIS/3 was able to get a hold of 1 video recording of this species.
+
+Last sighting:January 3 2001,near Victoria,Canada.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ELLINA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ELLINA.jpg)
+
+ELLINA
+
+Supposedly this is the race that started the myth of Elves(Elf).
+
+They are sighted often in the Germanic countries,deep in the forests.
+
+They are not known to be lethal to Humans,however they are known as being "prankstes"... it seems that they enjoy scaring Humans when these get too close.
+
+It has been reported that they have lured Humans away from their cars in order to steal their possessions...once the Humans are far away from their vehicles (and they already have stolen what they are wanted),they frighten them which makes the Humans leave the location.
+
+Last sighting:Near Munique,Germany in December 2004.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+THE COUNCIL OF 5
+
+
