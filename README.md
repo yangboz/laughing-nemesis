@@ -997,3 +997,27 @@ Their ships are small and spherical in shape.One of the reasons they visit us is
 ![Screenshot of "Alien_Race_SOLIPSIRAI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_SOLIPSIRAI.jpg)
 
 SOLIPSI RAI
+
+Peaceful and harmonious race.
+
+They 1 main leader and his name is Ymartyyn.
+
+Their civilization is 2 billion years old...once they were at same level of development as ourselves.
+
+They have no colonized...they are completely focused on the development of other planets and races.
+
+They come from constellation Cygnus.
+
+They do have one powerful weapon that keeps some neighbouring violent races away...and others that may try to invade them...at one time race Maitre lost 5 ships because of it.
+
+They said that the Human race,in the next few thousands of years,still have 650 options left to save ourselves,our planet and to guarantee a feature for our race...but it will all depend on our ability to travel through space.
+
+They are Solipsi Rai,but we call them..."grays"!
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_PUXHITY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_PUXHITY.jpg)
+
+PUXHITY(no image)
