@@ -1057,3 +1057,118 @@ Last seen on Earth in July-1997,near Brisbane,Australia.
 ![Screenshot of "Alien_Race_TANZANY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TANZANY.jpg)
 
 TANZANY
+
+They come from constellation Perseus,near the star Gorgonea Secunda.
+
+They have caused thousands (maybe millions) of deaths on Earth and other planets as one of their interests (or area of "study") is how other races react to tragedies and cataclysms.
+
+Technologically they are extremely advanced.
+
+One alien race reported that they (the Tanzany) caused both the crashing of the Hindenburg as well as the sinking of the Titanic.
+
+They can live up to 500 years and are around 1.7 meters tall (5').
+
+They are avoided by other alien races.
+
+Last sighting:January 1999 in New York state.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AIRK.jpg)
+
+AIRK
+
+They come from constellation Ophiuchus,near YedPrior.
+
+Considered by other races as peaceful.
+
+The purpose of their visits is unknown...they never stay long on Earth and do not interact with Humans or other aliens here.
+
+They mostly use Earth as a "stop" (to quickly gather something they may need)before they leave to their real destination.
+
+They are mostly nocturnal.
+
+Their ships emit a bright-orange light and are (most of them,not all) octogonal in shape.
+
+Last spotted near London(England) in May 2003.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_VINNYTVARY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_VINNYTVARY.jpg)
+
+VINNYTVARY
+
+They come from constellation Pavo.
+
+They a very respected and peaceful race presumably with mystical powers.
+
+They have been coming to Earth at least since 1.000 AD.
+
+They do not carry out abductions and do not interact with Humans.
+
+They can live up to 2.000 years.
+
+Their height is similar to that of a normal Human.
+
+They are vegetarians.
+
+Last sighting:near Odessa,Ukraine in July of 1995.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_STROM"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_STROM.jpg)
+
+STROM
+
+They come from constellation Ursa Minor.
+
+Stroms are invertebrates and coelenterates.
+
+Their average height is 2 meters(6.5').
+
+Vegetation is of great importance to their culture...and the main reason for their visits to Earth.
+
+They have been on Earth at least 200 times. They act with extreme caution and are rarely seen by Humans.
+
+First visited Earth at the end of the last big Ice Age.They have 20 colonies in the Via Lactea galaxy.
+
+They ships have the shape of an octagon.
+
+Last sighting:October 1976 in Oregon,USA
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_KALENIA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KALENIA.jpg)
+
+KALENIA
+
+They come from constellation Aquila,star Tarazed.
+
+They have colonized 3 planets and have a life span of 150 years.
+
+They are often sighted in northern Africa and the Sahara region.
+
+First visited Earth around 300 BC.
+
+They do not conduct abductions.
+
+Main interest about Earth:minerals.
+
+Last sighted in 2003 near a volcano in Iceland.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_MYTHILAE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MYTHILAE.jpg)
+
+MYTHILAE
+
