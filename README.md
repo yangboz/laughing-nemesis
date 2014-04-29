@@ -1172,3 +1172,153 @@ Last sighted in 2003 near a volcano in Iceland.
 
 MYTHILAE
 
+Once related to the Reptoid species,they are not,however,Reptilians.
+
+They come from constellation Serpens,star Alya.
+
+First visit to Earth was only in June 13,1965.
+
+They do not represent any threat to Humans.
+
+Often seen around Antarctica.
+
+The season for their visits is unknown.
+
+Last sighting:Antarctica,May 1,1997.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_REPTILIANS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_REPTILIANS.jpg)
+
+REPTILIANS
+
+The most known and feared of the Reptoid species (there are at least 3).
+
+They have been permanently on Earth for over 15.000 years(confirmed) but the belief is that they may have been here(permanently or on-and-off) for millions of years.
+
+They come from constellation Draco.
+
+They have a presence in thousands of planets and have at least colonized 500 by means of "infiltration" within the leadership of each planet...
+
+Some (not all) of their members have the power to shape-shift as well as telepathic abilities.
+
+On Earth they did not need to infiltrate Human leadership all the time as they often lived side-by-side with Humans(most of them unaware) and "lived" our evolution ( all aspects of it).
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_REPTILIANS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_REPTILIANS.jpg)
+
+REPTILIANS
+
+They are considered one of the most technologically advanced species,but they prefer to work in the "shadows",using that as an advantage for their progress or plans/agenda.
+
+They can travel inter-dimensionally (mot race can't) and some of their high-ranking members also have the power to become invisible... to have that power a reptilian must first be accepted in what they call "The Draco",an elite group of Reptilians.
+
+The Reptilians from "The Draco" are infiltrated(or even were co-founders) of the Illuminati.
+
+They have 3 main bases on Earthz:near the Bermuda Triangle, somewhere off the coast of Denmark and off the coast of New Zealand.
+
+Some say that they will never leave...at least on their own!
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ALCOHBATA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALCOHBATA.jpg)
+
+ALCOHBATA
+
+Presumably they have over 5.000 ships and have colonized over 100 planets on their own.
+
+Considered by other aliens as one of the "parasite" races.
+
+Abduction of Humans are frequent and on-going...
+
+Purpose of Human abductions:unknown.
+
+They do not like to interact with other alien races.
+
+They come from constellation Perseus and are extremely agressive.
+
+Suspected to have been involved in several airplane crashes,such as flight 007 over the USSR in 1983.The USSR leadership took the blame for that crash...
+
+Last seen:September 2001 in Canada.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_NEGUMAK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_NEGUMAK.jpg)
+
+NEGUMAK(aka Gnomopo)
+
+First known visit to Earth happened only in 1989.
+
+They abduct Humans and exercise control over the minds of their captives,which they use for their own benefit after the captives release.Reason:unknown.
+
+This race was the "inspiration" for the alien race in the movie "Independence Day".(note of Petro and me:the ARB states the same thing about another race)
+
+They are one of oldest races.
+
+They are one of the races that most Human governments fear when considering the feature of Humans.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ZETA_RETICULAI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ZETA_RETICULAI.jpg)
+
+ZETA RETICULAI(aka Shamtbhala)
+
+Often confused(because of their appearance)with the races Maitre and Solipsi Rai(the "grays").
+
+They come from constellation Nets.
+
+They are allies of the Anunnaki and cooperate with them in different planets...they are the representants of the Anunnaki on Earth and send them information about Humans and this planet at least 25 times per year.
+
+The Anunnaki createed a sub-species of the Zeta with the purpose of making them look more Human-like...but leaving enough physical differences for Humans to distinguished them.
+
+They became some of the Pharaohs of Egypt.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ZETA_RETICULAI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ZETA_RETICULAI.jpg)
+
+ZETA RETICULAI(aka Shamtbhala)
+
+The most well known was Akhenaten,who was removed from power by Reptilians...they infiltrated themselves in the Court as Temple Priests.
+
+First reports of Zeta's on Earth go back to 4.000 AD,but that number is most likely much higher.
+
+They were the first hybrids to be engineered by the Anunake(Anunnaki).
+
+The Zeta sub-species still exists on Earth and still (at least 30%) present the same physical differences created in them.
+
+The sexual organs of the sub-species are in very aspect the same as that of Humans.
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ZETA_RETICULAI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ZETA_RETICULAI.jpg)
+
+ZETA RETICULAI(aka Shamtbhala)
+
+The Zeta's still exist on Earth in both forms...the "original" and the hybrid sub-species.
+
+Their location on Earth is...unknown !
+
+![Screenshot of "Alien_Race_Zeta_Reticulai_s"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Zeta_Reticulai_s.jpg) ![Screenshot of "Alien_Race_Zeta_hybrid_sub-species"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Zeta_hybrid_sub-species.jpg)
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_ZETA_TARICE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TARICE.jpg)
+
+TARICE(no image)
+
+Their origin is unknown.
