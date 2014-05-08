@@ -230,7 +230,7 @@ When with Humans:
 
 3 - Gather physical evidence
 
-When with Alens:
+When with Aliens:
 
 1 - Engage with them
 
@@ -852,7 +852,7 @@ Last sighting: New Zealand,in 2006... a group of 20 members.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_SMD.jpg)
+![Screenshot of "Alien_Race_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_SMAD.jpg)
 
 SMAD(no image)
 
