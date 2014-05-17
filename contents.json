@@ -1,0 +1,46 @@
+{
+"contents": [
+             {
+             "texts": [
+                       {
+                       "textureFileName": "njq_s1_mc_text",
+                       "textureFileExtension": ".png",
+                       "frames": 15,
+                       "soundEffect": "njq_sound_touch_default.mp3",
+                       "x":500,
+                       "y":216
+                       }
+                       ],
+             "sprites": [],              
+             "buttons": [],
+             "sound": "njq_s1_sound_00.mp3",
+             "background":"njq_s1_bg_00.png",
+             "movieclips": [
+                            {
+                            "textureFileName": "njq_s1_mc_bear",
+                            "textureFileExtension": ".png",
+                            "frames": 10,
+                            "soundEffect": "njq_sound_touch2.mp3",
+                            "x":300,
+                            "y":422
+                            },
+                            {
+                            "textureFileName": "njq_s1_mc_fox",
+                            "textureFileExtension": ".png",
+                            "frames": 10,
+                            "soundEffect": "njq_sound_touch2.mp3",
+                            "x":770,
+                            "y":474
+                            },
+                            {
+                            "textureFileName": "njq_s1_mc_pig",
+                            "textureFileExtension": ".png",
+                            "frames": 10,
+                            "soundEffect": "njq_sound_touch2.mp3",
+                            "x":80,
+                            "y":545
+                            }
+                            ]
+             }
+             ]
+}
