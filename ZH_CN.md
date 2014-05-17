@@ -70,22 +70,39 @@ THE ALIEN RACES BOOK
 
 In 2004 I became friends with an Ukrainian guy called Petro that I met completely randomly at a bar by the beach...I was on holidays and he was there with some friends having some drinks.
 
+2004年的时候我交了一位乌克兰朋友名叫Petro,我在一个沙滩酒吧完全随机的遇到的...那时候我在度假而他在那和一些朋友一起喝酒.
+
 Anyway,we started talking with each other...our friendship started like that...he became a regular at my house where our families would get together.
+
+不管总么说,我俩开始相互交谈...我俩的友谊就像那样的开始了...他成为了我家庭聚会的常客了.
 
 In 2008 he called me and asked me if I wanted to go on a road trip...I said "SURE!"
 
+2008年的时候他给我电话邀请我是否能和他一起旅行...我说"当然!"
+
 He had in mind to go to the south of Spain and visit his brother(his brother was there in jail at the time,near Huelva...) and also to visit his father in Portugal (his father was a former diplomat of the Ukraine, years before, and where he retired he decided to move to Portugal and live there...)
+
+他想着去西班牙的南部去拜访他的兄弟(他兄弟那时候还在监狱,靠近韦尔瓦...)一并去拜访在葡萄牙的他的父亲(他的父亲之前是驻乌克兰外交官,很多年前,然后他退休决定住在葡萄牙...)
 
 And so we went...we visited his brother and then went to Portugal to visit his father...
 
+然后我们到了那...我们拜访了他的兄弟之后再拜访他的父亲...
+
 When we were at his house he asked us a favor(he is old)... if we could empty boxes from one of the rooms,as he wanted to make it into a bedroom for guests...
+
+当我们到达他父亲的房子那,他父亲要我们帮他一个忙(他年迈)...让我们帮他清空他一房间里面的盒子,他想腾出地方来作为客房...
 
 We said "OK" and went to the room,excepting to see some old newspapers...
 
+我们爽朗的答应了之后到那个房间,期待见到一些旧报纸...
+
 Instead we found about 58 boxes full of old documents and books from the time when he was a diplomat...
+
+反而我们发现的是58个装满了旧文档和书籍盒子，来自他当时还是外交官的年代...
 
 Some papers(documents) were in Russian... some were even from the USSR times.
 
+一些文案(文档)是俄文...一些甚至来自苏联时代.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
