@@ -179,51 +179,85 @@ However he did say something else...something extremely interesting.
 
 He told us that amongst high-ranking diplomats there has been much "solid" discussion and debate about "a plan" involving centain media (from online to paper to hollywood to the video game industry)and centain security departments (specially from Japen,China,Canada,USA and Europe) in order to use the "right"(to them)images to describe the appearance of aliens...
 
-他
+他告诉我们这些高职位的外交官们有过太多的"可靠的"讨论和辩论关于"一个计划"涉及一些媒体(从网络到报纸到好莱坞到电子游戏行业)和一些安全部门(特别是日本，中国，加拿大，美国和欧洲)为的是行使这个"正确的"(对他们来说)图片去描述外星人的外观...
 
 All the media involved was (in the end...either directly or because they owned the "mother" companies)owned for no more than 5 people...and that this was a concerted effort in order to get people(human-kind)used to the appearance and presence of alians...amongst us!
 
+所有涉及的媒体(最终...要不直接或者因为拥有他们“母"公司的)拥有者不超过5个人...因此这是一个协商好的影响效果为得是让人们(人类)适应于外星人的出现和外表...在我们中间!
+
 He(Petro's father)also told us that some of the alien races images used in video games(and other media)were used in the book PRIOR to the release of the game and/or movies...
+
+他(Petro的父亲)也给我们说到一些外星人种族的图片被用在了一些电子游戏中(或者其它媒体)，这本书中用到的早于这些游戏和或电影发布...
 
 Him and some of his friends had knowledge that some of those security departments had actually created some of the images and then "released" to the proper channels...in order for those images to be known to the general public.
 
+他和他的一些朋友知道这些安全部门已经实际上创建了一些图片然后再“流出”到一些可能的渠道...为的是让这些图片被广泛大众所知.
+
 This,obviously,we could not confirm...except for one of images on the book...the aliens used in the movie "Independence day" were known before the making (not even close) of the movie...by at least 8 years!
 
+这些,很显然,我们不能确认...除了书中的一张照片...在电影"独立日"中用到的外星人照片，在我们知道的开始制作(不太确切)这部电影的时候...截止至少8年!
+
 Also,some of the photos on the ARB,had been tampered with...
+
+同时,在ARB中的一些照片,被篡改过通过...
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 And so,there you have it...the "story" behind the ALIEN RACES RUSSIAN SECERT BOOK!
 
+在同时,你现在看到的...是在ALIEN RACES RUSSIAN SECERT BOOK之后的"故事"!
+
 At least some of it...
 
+至少一些是其中的部分...
+
 I hope you enjoy the book and all the revelations contained in it.
+
+我希望你愉快阅读此书以及书中所有相关的内容.
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 this book is dedicated to the memory of PETRO
 
+此书献给PETRO的美好回忆.
+
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 The ARB book has been re-editd(information always being updated in all aspects,from new alien races to new reports and photos or illustrations) at least 12 times. That we know the first edition was printed in 1946 or early 1947.Then new editions were printed:1951(Ihave the cover,just the cover,of that one),1959,1968,1971,1980...all the way to (we believe)2011.
+
+此ARB书被重新编辑过(信息经常被更新包括所有方面,从新的外星人种族到新的报道和照片或者素绘)至少12次.我们知道的第一版本印刷是在1946年或者1947年之前.然后新的版本在1951年(我有封面,就只有封面,此版本的),1959,1968,1971,1980...所有的方式到(我们确信)2011.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "THE_LOST_COPY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/THE_LOST_COPY.jpg)
 
-THE LOST COPY
+THE LOST COPY 
+
+丢失的备份
 
 In the 1980's a copy of (edition) of this book was found on a field in Buryatia (east Siberia).
 
+在1980年代一份此书(编辑版)的复印在布里亚特(东 西伯利亚)的战场上被找到.
+
 Thay copy ended up in the hands of a KGB agent with friends in the media.
+
+那份拷贝终止在一个媒体中朋友之一的克格勃特工手中.
 
 After the collapse of the USSR some of the information (and images) in the book were leaked (sold?).
 
+苏联解体之后一些信息(和图片)在这书中的被泄漏了(卖了?).
+
 Years later the information and some of the images started apprearing in TV series and video games.
+
+多年后这些信息和一些图片开始出现在电视连续剧和电子游戏中.
 
 "Mass effect" being the most well known...
 
+"质量效应"成为最广为人知的...
+
 (this information was handwritten on the book)
+
+(这些信息是在书中手写的)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
