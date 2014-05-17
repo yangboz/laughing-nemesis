@@ -109,41 +109,77 @@ Some papers(documents) were in Russian... some were even from the USSR times.
 
 Petro started reading/translating some of them and we realized that there was a lot of interesting,intriguing and even top-secert (at least at one time) documents!
 
+Petro开始一边阅读一边翻译这些，而我意识到这是一些非常有意思，激发兴趣甚至极其机密的(至少在某一段时间)文档!
+
 So we ask his father if we could keep this boxes for ourselves...he agreed and...we have to rent a van to take everything back to home with us.
+
+因此我们问他父亲我们是否能够保留这些盒子给自己...他同意了...我们就租赁了一个箱型客车来保存我们所有的这屋子中的一切.
 
 Week after week,in our house but mainly on the weekends,we went through all of the documents,translating them,cataloguing them by subject matter,or dates and places,etc...
 
+一周又一周,在我们屋子里但是主要都是在周末,我们经历过了所有的文档,翻译,按主旨分类,或者日期和地点,等等...
+
 As,due to work,we were apart quite offen,we also did a lot of work on line.
+
+同时,由于工作,我们经常分开,我们也经常在网络上一起完成相关工作.
 
 That's when we found THE BOOK...the book that lead to the videos I publised...(this one book that we has is undated and looks "modern",but we did find the cover -only the cover- for the same book but dating back to 1951!)
 
+这就是当我们找到*这本书*的时候...这本书导致我发布的一些视频...(就这本书我们让它无定期看起来现代时髦,但是我们找到封面-仅仅只有封面-是为了同一本书但是时间回到了1951年!)
+
 We called his father later that year and asked him about the book...and he filled in the missing information...he said that amongst high ranking political officals there had always been the rumor of alien contact,but nothing concrete...
+
+我们这之后一年给他父亲电话关于这本书...他父亲填充了一些丢失的信息...他说到在高阶级政治官员他们经常有一些外星人接触的传闻,但是抓不到具体的证明...
 
 He said that he had received the book years before from one of his life-long diplomat friends and had been updating the book until recently with information that friends of his sent him,or when they would get together to talk about "old times".
 
+他说到多年前收到这书是从他的一辈子的外交官朋友那而且这书一直在更新从他朋友那发过来的，或者当时他们在一起谈论的"青春时光".
+
 That information(regular updates)was sent to him by mail,phone or online.
 
+那些信息(正常更新的)通过他发邮件或者在线电话传过来.
+
 He still gets regular updates that transmits to me.
+
+他一直保持正常更新且传送给我.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 The book has hundreds of side-notes on the pages(updates),small papers with related miscellaneous info attached to pages,photos stapled to them,etc...that is how we found out about relatively recent visits from aliens,their numbers,where it happened,etc...they had been updating the information they could get regularly.
 
+这本书有非常多的页面笔记作为(更新),小的页面有一些旁杂的附属信息,夹订一些相关图片,等等...这就是我们发现的相关的最近有关外星人访问，数量，什么时候发生的，等等...他们正常获得后再更新这些信息。
+
 BUT he also said that there were only a handful of people that were in the "know" back then(USSR days)...the leader of the communist party and a couple of advisers,5 or 6 SMERSH agents(maybe more,up to 12),the commander of the armed forces AND the commander of the 3 armed forces branches(army,air-force and navy) and maybe a couple of scientists...
+
+*但是*他也说到在这之背后少数"知情的"认识在支持他们(苏联时代)...社会主义领导人和一些咨询顾问,5,6个 (俄语)间谍之死--谋杀政敌的前苏维埃组织 成员(或者更多，到12个),陆军司令和三军统帅(陆，空，海) 和一些可能的科学家...
 
 He said that most likely there were more people in the know,specially in the militray,but he could't confirm that!(him and his friends did not recognize some of the names mentioned on the book)
 
+他说到大概像这些已知的人群，特别在军队，但是他不能确认这些！(他和他朋友不能认出一些在盒子中提到的人名).
+
 People have asked me about some of the illustrations of certain Alien Races on the book...this because some of them were literally copied off movies and/or video games(or not).
+
+人们有问过我一些在这本书中外星人种族的抽象画...这些是英文数中的图片被文学式的抄袭到电影和或者电子游戏中(或者没有).
 
 Me and Petro asked ourselves the same thing,as we recognized some of them...and we did contact his father in order to get an answer.
 
+我和Petro也相互问同样的问题,当我们认出他们中的一些人来...我们就联系他的父亲为的是得到一个答案.
+
 He told us that over the years the people that were adding/updating/printing the book has been using alien images from the media when they did not have a real photo or drawing from the witnesses...
+
+他给我们道来，经过这么多年人们增加／更新／打印书中用到的从媒体中来的外星人图片，当时他们也没有真实的照片或者从见证者描述过来的素绘...
 
 So sometimes they used images from movies and video games that better discribed the Alien Races in question...this according to the witnesses testmonies(description of their encounters).
 
+因此有时候他们用到的从电影或者电子游戏中过来的图片能更好的描述问题中的外星人种族...这些从目击者证据(目击人描述过来的).
+
 However he did say something else...something extremely interesting.
 
+然而也说了一些其它的...一起极其有意思的.
+
 He told us that amongst high-ranking diplomats there has been much "solid" discussion and debate about "a plan" involving centain media (from online to paper to hollywood to the video game industry)and centain security departments (specially from Japen,China,Canada,USA and Europe) in order to use the "right"(to them)images to describe the appearance of aliens...
+
+他
 
 All the media involved was (in the end...either directly or because they owned the "mother" companies)owned for no more than 5 people...and that this was a concerted effort in order to get people(human-kind)used to the appearance and presence of alians...amongst us!
 
