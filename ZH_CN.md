@@ -323,7 +323,7 @@ It said:
 
 ![Screenshot of "Suppose_photo_of_Sofiya"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
 
-假象Sofiya的照片(待确认)
+假想Sofiya的照片(待确认)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -333,19 +333,35 @@ TO:
 
 SMERSH Agents Department IV-A1/12
 
+ (俄语)间谍之死--谋杀政敌的前苏维埃组织探员部门 IV-A1/12
+
 It is your duty to thoroughly investigate all events regarding any reports of visitations or incidents concerning creatures from other planet as well as with non-terrestrial creatures that dwell on our planet at the present or feature time.
+
+你的职责是经过调研所有事件有关所有报道关于访问或者事件关于来自其它星球的或者非地球生物居住在我们地球至今或者将来.
 
 It is your duty to immediatly present to your Superior in charge(KL-44) any material evidence gathered during your investigations.
 
+你的职责是立即呈现给你的汇报上级(KL-44)前,任何收集的物证材料经过你的调查后.
+
 It is your duty to keep absolute secrecy and concealment regarding your findings and conclusions during your invistigations except from your Superior in charge (KL-44).
+
+你的职责是保证绝对的保密和隐秘这些你在寻找和汇总的在你的调查中,除了你的直属负责上级(KL-44).
 
 It is your duty to immediatly destory this book incase your physical being or personal safety is threadtened.
 
+你的职责是立即毁坏这本书以防你的身体或者个人安全受到了威胁.
+
 The loss of this book while in your possession will result in serious consequences for your 2 SMERSH companion Agents as well as for your immediate relatives.
+
+丢失这本你拥有的书直接导致的严重后果至你的2个直接关联的SMERSH同伴.
 
 Make use of your extensive trainning and love for our great Union.
 
+确保使用上你的广泛训练和博爱忠于我们伟大的联盟.
+
 ![Screenshot of "Chief_Marshal_"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Chief_Marshal_.jpg) Chief Marshal Konstantin A. Vershinin 1947
+
+上将Konstantin A. Vershinin 1947
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -353,31 +369,55 @@ Make use of your extensive trainning and love for our great Union.
 
 The book of alien races is both an instructions manual and a source of information to be used now and in the feature until the day it will be needed no more.Learn from it and added to it.
 
+外星人种族之书既是教学手册也是信息之源至今已用的和未来直到某天不再需要了.从中学些它并添加丰富吧!
+
 When with Humans:
+
+和人类的时候:
 
 1 - Investigate Events
 
+1 - 调查事件
+
 2 - Interrogate witnesses
+
+2 - 质问目击者
 
 3 - Gather physical evidence
 
+3 - 收集物证据
+
 When with Aliens:
+
+和外星人的时候:
 
 1 - Engage with them
 
+1 - 参与他们
+
 2 - Follow them
 
+2 - 跟随他们
+
 3 - Learn from them
+
+3 - 向他们学习
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 YOUR ARE FORBIDDEN OF:
 
+你被禁止:
+
 SHOWING THIS BOOK TO ANYONE,TALKING ABOUT THIS BOOK TO ANYONE,TALKING ABOUT OR REVEALING YOUR INVISTIGATIVE ACTIVITIES TO ANYONE,DRINKING ALCOHOL ON AND OFF DUTY,CONSUMING DRUGS AND ON OFF DUTY,HELPING ALIEN RACES NO MATTER THE SITUATION OR REQUEST,CHOOSING "SIDES" WHEN PHYSICALLY AMONGST DIFFERENT ALIEN RACES OR DURING INVISTIGATIONS,AND OF ENGAGING IN SEXUAL ACTIVITIES WITH ANY MEMBERS OF ANY ALIEN RACE.
+
+把这本书展示给任何人,谈论这本书和任何人,谈论或者呈现你的调查活动给任何人,喝酒不工作,工作不喝酒,吸毒不工作,工作不吸毒,帮助外星人不管任何苦难或任意请求,选择"一方"在不同的外星种族中或者在调查的时候,同时不能参与性方面的活动和任何任意外星人种族成员.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 THE ALIEN RACES
+
+外星人种族们
 
 ![Screenshot of "Alien_Race_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_cover.jpg)
 
