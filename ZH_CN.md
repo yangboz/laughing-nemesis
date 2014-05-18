@@ -263,42 +263,73 @@ Years later the information and some of the images started apprearing in TV seri
 
 In 1924,near Yekaterinoslav,Ukraine (now Dnipropetrovsk) the 3 daughters of a certain Captain Andriychuk simply vanished.
 
-![Screenshot of "LOCATION_Dnipropetrovsk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
+1924年,靠近Yekaterinoslav,乌克兰(现在Dnipropetrovsk)一个已确认的Andriychuk队长的三个女儿简单的凭空消失了.
 
+![Screenshot of "LOCATION_Dnipropetrovsk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
 
 ![Screenshot of "Captain_Andriychuk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Captain_Andriychuk.jpg) Captain Andriychuk was of Russian descent and very little is known about him,except that he travelled a lot.
 
+Andriychuk是苏联家氏而且对他知之甚少,除了他到处旅行点很多.
+
 A farmer that lived near Captain Andriychuk's house said that he saw the Captain's daughters walking towards the woods maybe 2 hours before sunrise.
+
+住在Andriychuk队长房子附近点农民提到，他看到队长的女儿们径直走到树林大约在日出前2个小时.
 
 Intrigued,he followed them at a distance.After walking for 30 minutes he described seeing "purple and red lights and mist" through the trees.
 
+出于好奇心,他保持一段距离跟随她们.走了30分钟之后,他描述到所看到的"紫色和红色和迷雾"弥漫在树木之间.
+
 He got closer and saw the 3 girls entering what he called "a floating bright windmill-like plane"...he also reported seeing 5 creatures as small as the children but with a "much old face".
 
+他走得更近了，看到这3个女孩走进了他所谓的"一个漂浮的闪亮的风车似的飞机"...他同时也报道看到5个生物像小孩一样小但是拥有一张"够老的面孔".
+
 According to him the "windmill" then flew very slowly "into the stars" until he could not tell them apart.
+
+透过他的"风车"一会缓慢的飞离"至群星"直至他不能和她们告别.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 According to the farmer,he ran to Captain Andriychuk's house to warn him about the event.
 
+通过这个农夫,他跑向Andriychuk队长的房子去警告他刚才这个事件.
+
 ![Screenshot of "Suppose_farmer's_home"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_farmer's_home.jpg) This photo supposedlly shows the farmer's house.
+
+这个照片可假设为农夫的房子.
 
 Upon arriving he knocked on the door but nobody answered...
 
+接着当他到门口敲门的时候但是无人应答...
+
 He then entered the house and found the Captain and his wife dead on their bed...their faces "were peaceful",as if they had died during their sleep.
+
+然后他直接进入房间，他发现队长和他的妻子死在了他们的床上...他们的面部"平静",就像他们在睡梦中逝去.
 
 All their animals(3 dogs,1 horse and 2 goats) were dead as well.
 
+他们家所有的动物(3条狗,1匹马和2只羊)也死了.
+
 On the kitchen table there was a letter or note(not signed) with the handwriting that matched Sofiya, one of the daughters.
+
+在厨房的桌子上有一封信或者是留言(未署名)手写的和Sofiya字迹一致,女儿之一.
 
 It said:
 
+说到:
+
 "We are going to the school in the moon,with our friends..."
 
+"我们去月亮上的学校了,和我们的朋友..."
+
 ![Screenshot of "Suppose_photo_of_Sofiya"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
+
+假象Sofiya的照片(待确认)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 TO:
+
+致:
 
 SMERSH Agents Department IV-A1/12
 
