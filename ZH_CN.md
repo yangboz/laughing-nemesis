@@ -465,17 +465,31 @@ KILLY-TOKURT
 
 They come from constellation Vela,near the star Suhail AI Muhlif.
 
+他们来自船帆星座,靠近Suhail AI Muhlif星.
+
 They grow up to 2 meters high(6') and live up to 200 years.
 
-They can shap-shift and are very hard to detect.
+他们能长到2米高(6英尺),能活到200年.
+
+They can shape-shift and are very hard to detect.
+
+他们能形状转换而且很难检测到.
 
 When they shap-shift the only thing they can not change is the size and colour of their eyes.
 
+当他们变形得时候唯一不能改变得是他们的眼睛大小和颜色.
+
 They are one of the oldest known races.
+
+他们是已知最老的种族之一.
 
 They do abduct humans.
 
+他们绑架人类.
+
 Last seen on earth in July of 2008.
+
+最后目睹在地球上是2008年7月.
 
 * * *
 
@@ -487,19 +501,35 @@ PLEYADIYANS
 
 They come from solar systems surrounding the Pleyadiyes stars,more precisely from the planet Erra near the star Taygeta.
 
+他们来自围绕在昴宿星的太阳系统,更精确来自埃拉行星靠近昴宿二.
+
 They are associated with spiritual growth.
+
+他们与精神成长有关.
 
 They can grow up to 2.5 meters (8').
 
+他们能长到2.5米(8英尺).
+
 They practice "sex cultivation",the distinct difference between their sexual expressions and their sensual emotions.
+
+他们演练"性培养",明显的区别在于他们性的表达和他们的肉欲的表情.
 
 Their ships are known as "beamships".
 
+他们的飞船广为人知的"梁船".
+
 Although regularly visiting Earth,they have remained mostly "silent" since 10.000 BC.
+
+尽管很常规的访问于地球,他们依然保持着最"静默"早在公元前10000年.
 
 They are one of the oldest known races.
 
+他们是已知的最老的种族之一.
+
 They continue to develop the neccessary mental skills to eventually reach their goal:an even higher "spiritual state".
+
+他们继续发展必须的心智技能为了最终达到他们的目标: 一个平坦更高层次的"精神状态"。
 
 * * *
 
