@@ -429,17 +429,31 @@ THE ALIEN RACES
 
 ALLGRUULK(aka "the builders")
 
+ALLGRUULK(也就是"构建师")
+
 They come from constellation Sculptor.
+
+他们来自玉夫星座.
 
 The derive from an ancient race of reptilians that has gone extinct.
 
+他们继承于已经灭绝的远古爬虫种族.
+
 They are specialist at building ships and other devices needed for deep space travelling.
+
+他们擅长于建造飞船和其它驱动设备用于深度太空旅行.
 
 They are also space-travellers themselves,searching for new raw materials.
 
+他们本身也是太空旅行,为了寻找新得原始矿产.
+
 They can live up to 230 years.
 
+他们能活到230岁.
+
 Last seen near Tokoyo(Japen) in 2005.
+
+最后目睹在2005年,日本东京附近.
 
 * * *
 
