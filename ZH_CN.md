@@ -578,13 +578,23 @@ They are the race "behind" the story of Enlil and Ninlil.
 
 They were directly involved on the developement of the Human race during our early stages.
 
+他们直接涉及到在我们早期人类种族发展.
+
 After centuries away from Earth they have recently returned.
+
+在离开几个世纪之后他们最近返回了.
 
 Their own leader is amongst the most recent visitors.
 
+他们自己的领导者也在最近访问者之中.
+
 They will now stay on Earth permanently... they will have an important role in the years to come.
 
+他们现在将永久的呆在地球...他们将有一个非常重要的角色持续在接下来的年头.
+
 They spend time immersed in a precious gold-like liquid that presumably extends their life span.
+
+他们花时间沉浸在一个极其像黄金一样的液体中,据推测能延长他们的生命线.
 
 * * *
 
@@ -596,17 +606,31 @@ HAV-HANNUAE-KONDRAS
 
 They come from galaxy Sextans Dwarf SPH.
 
+他们来自Sextans Dwarf SPH银河.
+
 First visited Earth in 934 AD in the area that we now know as Romania.
+
+首次访问地球时间在公元前934年,地点是在我们所知的罗马尼亚.
 
 They often abduct and kill humans...they also drain and drink the blood of Humans as well as the blood of animals.
 
+他们经常绑架和杀害人类...他们也喝和吸人类的血液或者其他动物的.
+
 They are responsible for the myth of vampires.
+
+他们有责任于神秘的吸血鬼.
 
 Sereral Human governments know and accept their actions.
 
-Then Human bodies that they "used" are never returned.
+几个人类政府知道而且接受他们的行动.
+
+The Human bodies that they "used" are never returned.
+
+这些他们所"用"的人体从来没有归还过.
 
 Last sighting:Scotland,in 1996.
+
+最后目睹:苏格兰,在1996年.
 
 * * *
 
@@ -618,15 +642,27 @@ MAZAREK
 
 They come from consellation Camelopardalis.
 
+他们来自鹿豹星座.
+
 From the 1300's to the early 1900's(our calendar)they were not allowed to leave their planet by other alien races.
+
+从1300年到早期的1900年(我们的日历)他们被其他外星种族规定不容许离开他们的星球.
 
 They are very violent and "predatory" race.
 
+他们是非常暴力和"掠夺性"的种族.
+
 They are known to be allies of the race Maitre.
+
+他们是一知道的Maitre种类的同盟.
 
 They grow up to 1.6 meters (5').
 
+他们能长到1.6米(5英寸).
+
 Last seen on Earth: August of 2001.
+
+最后目睹在地球上:2001年8月.
 
 * * *
 
@@ -638,17 +674,31 @@ AL -GRUUALIX
 
 They come from constellation Cetus,near Deneb Kaitos Shemali.
 
+他们来自鲸鱼星座,靠近Deneb Kaitos Shemali.
+
 Although there are ofen confused with reptilian races,they do not share anything with them except their appearance.
+
+尽管他们经常被混淆于爬行类种族,他们除了他们外观其它什么东西都不分享.
 
 Their height is around 2 meters(6') and they can live up to 350 years.
 
+他们的身高大约在2米(6英寸)而且他们能活到350岁.
+
 This is one of 21 races that are known to have more than 2 genders(sexes).
+
+这是一个已知有21个种类,不止2个性别.
 
 This race has 8 different genders and all of then can reproduce with each other.
 
+这个种族有8种不同性别而且他们都能相互产生下一代.
+
 The purpose for their visits Earth is unknown.
 
+他们访问地球的目的还不知道.
+
 Last sighting was near Lima(Peru) in December of 2004.
+
+最后目睹在利马(秘鲁)附近,时间是2004年12月.
 
 * * *
 
@@ -656,7 +706,7 @@ Last sighting was near Lima(Peru) in December of 2004.
 
 ![Screenshot of "Alien_Race_THE_MESSENGERS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_MESSENGERS.jpg)
 
-"THE MESSENGERS"(no image provided)
+"THE MESSENGERS"(no image provided)信使(图片未提供)
 
 Probably the most enigmatic of all alien races...not much is known about them.
 
