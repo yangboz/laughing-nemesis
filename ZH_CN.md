@@ -542,11 +542,19 @@ KYLLIMIR-AUK
 
 They comes from constellation Volans.
 
+他们来自飞鱼星座.
+
 The sightings of this race on Earth are rare and they are considered as "a mystery race".
+
+在地球上目击这个种族非常少见而且他们被看作是"一个神秘的种族".
 
 It is said that they were forbidden to visit Earth around the year 1.000 BC,but they did not stop visiting Earth compeletely...
 
+据说他们被禁止访问地球大约在公元前1000年,但是他们并没有完全停止访问地球...
+
 Last seen on Earth:December of 1989.
+
+最后目睹在地球:1989年12月.
 
 * * *
 
@@ -554,13 +562,19 @@ Last seen on Earth:December of 1989.
 
 ![Screenshot of "Alien_Race_KURS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KURS.jpg)
 
-KURS(aka "God of Lands")
+KURS(aka "God of Lands")KURS(也就是"领土之上帝")
 
 Believed to be related to the race Anunnaki.
 
+被认为和Anunnaki种族相关.
+
 They come from the planet Dillimuns.
 
+他们来自德利母斯行星.
+
 They are the race "behind" the story of Enlil and Ninlil.
+
+他们是伊利尔和尼丽故事"之后"的种族.
 
 They were directly involved on the developement of the Human race during our early stages.
 
