@@ -1,11 +1,3 @@
-![Screenshot of "Original_Book_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Original_book_cover.jpg)
-
-CONTACT ME @
-================
-
-![Screenshot of "ARB_Contact_me"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_Contact_me.jpg)
-
-
 INTRODUCTIONS TO THE ALIEN BOOKS 
 ================
 
