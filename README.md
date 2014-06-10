@@ -6,17 +6,10 @@ CONTACT ME @
 ![Screenshot of "ARB_Contact_me"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_Contact_me.jpg)
 
 
-INTRODUCTION TO THE ALIEN RACES BOOK
-================
-
-
-CONTENTS
-================
-
 INTRODUCTIONS TO THE ALIEN BOOKS 
+================
 
 THE ALIEN RACES BOOK
-
 
 * THE ALIEN RACES
 * THE COUNCIL OF 5
@@ -31,6 +24,6 @@ THE ALIEN RACES BOOK
 Localization
 ================
 
-EN_US:
+EN_US: (https://github.com/yangboz/laughing-nemesis/blob/master/EN_US.md)
 
-ZH_CN:
+ZH_CN: (https://github.com/yangboz/laughing-nemesis/blob/master/ZH_CN.md)
