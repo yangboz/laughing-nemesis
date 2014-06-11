@@ -742,19 +742,35 @@ RAMAY
 
 They come from Capella,constellation Auriga.
 
+他们来自五车二(御夫座中的一颗双星),御夫星座.
+
 Known to be a peaceful race.They try to co-exist with Humans.
+
+已知是一个和平的种族.他们尝试和人类并存.
 
 They "created" the Mayan civilization (culture) by placing humans from different places on Earth  in South America.
 
+他们"创建"了玛雅文明(文化)通过把人类安放在地球的南美洲.
+
 They are race of "scientists"...They taught the Mayans about astronomy and "time".
+
+他们是"科学家"种族...他们教会玛雅人有关太空学和"时间".
 
 They left Earth when the Mayans were at their highest splendor.
 
+他们离开地球是当玛雅人达到了他们最高辉煌.
+
 After that the Mayans started the well known "blood sacrifices" in their honor.
+
+之后玛雅人开始广为人知的"血祭"以他们的荣耀.
 
 This race has been on Earth many times after that...
 
+这个种族在这之后来过地球好几次...
+
 Last sighting: Bora-Bora in 2001.
+
+最后目击:博拉博拉岛(西经 151º45' 南纬 16º30') 2001年.
 
 * * *
 
