@@ -812,13 +812,23 @@ They have colonized over 40 planets outside our solar system...so far!
 
 Of the 58 races desribed here,this is the race that least visited Earth(that we know of so far)... only 5 times.
 
+在这描述的58个种族中,这个种族至少访问过地球(据我们所知)...仅5次.
+
 They visited the area we know as the middle-east and that created the belief in the "Jinn"(or "genies") in Islamic mythology.
+
+他们访问的地域是我们所知的中东和一些创建了在伊斯兰神话中被深信"神灵"(或者"妖怪").
 
 According to some  Muslims scholars they inhabit an unseen world in a dimension beyond the existing dimensions of our universe.
 
+通过一些穆斯林学者所说他们居住在一个不可见的世界维度超出我们这个宇宙已经存在的维度.
+
 According to the reports from other alien races,they stopped visiting Earth because their immuse system could not copy with Earth's fauna and flora.
 
+通过这些报道来职其它外形种族,他们停止了访问地球是因为他们的免疫系统不能应付地球上的动植物.
+
 Last recorded visit: 712 AD.
+
+最后的访问记录:公元前712年.
 
 * * *
 
@@ -826,25 +836,43 @@ Last recorded visit: 712 AD.
 
 ![Screenshot of "Alien_Race_THE_INVISIBLES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_INVISIBLES.jpg)
 
-THE "INVISIBLES"(no image)
+THE "INVISIBLES"(no image)"不可见"(无图)
 
 This race is know as have been "seen" near high-security areas.
 
+这个种族据知被"看见"靠近一些相当安全的区域.
+
 They are almost completely invisible to the naked eye.
+
+他们几乎完全不可见对于我们肉眼.
 
 Both the USA and Russian military have developed technlogy that allows them to track them down on radar (just the ships).
 
+美国和苏联军队都研发技术为了能够让他们去追踪它们至雷达上(仅仅是飞船).
+
 3 things about konwn about this race:
+
+关于这个种族已知的3件事:
 
 1-they leave a sour smell when they are near.
 
+1-他们靠近的时候留下一种酸腐的味道.
+
 2-when they are near windows you can "see" their reflections as a "smudged-like" figure (have been caught on cctv footage)
+
+2-当他们靠近窗户的时候你能"看"到他们的倒影形似于一种"污渍类似"形状(已经被闭路电视录像抓怕下来过)
 
 3- when many dogs (or only 1)start barking with no apparent reason,it is possible that they are nearby (or Reptoids/Reptilains)
 
+3-当很多狗(或者仅一只)开始犬吠没有任何迹象原因,就是有很可能他们在附近(或者爬行动物/爬行虫类)
+
 They come from constellation Mensa.
 
+他们来自山案星座.
+
 Purpose of presence:unknown
+
+出现的目的:未知
 
 * * *
 
@@ -856,15 +884,27 @@ ALLMAHULUK-STRAT-163
 
 They were forced to leave Earth after lossing a battle against Reptoids in ancient India (date unknown),which there had been visiting for around 200 years.
 
+他们被强制离开地球在输了一张战争,敌人是在古印度(时间未知)的爬行动物,他们之前访问地球于200年.
+
 They have resumed their visits to Earth in 1948.
+
+他们已恢复访问地球在1948年.
 
 Technologically this is a very advanced race.
 
+技术层面上说这个种族是一个非常先进的种族.
+
 Their ships are offen invisible(to radar and the Human eye)and they wear some sort of clothing that makes them invisible as well.
+
+他们的飞船经常不不可见(对于雷达和人类肉眼)而且他们身穿一些衣服能让他们同样不可见.
 
 Supposedly they come from Jupiter or from one of its moons.
 
+假定他们来自土星或者土星的某个卫星.
+
 Last sighting:Portugal,May 2005.
+
+最后目击:葡萄牙,2005年5月.
 
 * * *
 
