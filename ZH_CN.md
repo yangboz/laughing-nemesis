@@ -778,19 +778,31 @@ Last sighting: Bora-Bora in 2001.
 
 ![Screenshot of "Alien_Race_MOOVIANTHAN-KAYPHIK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MOOVIANTHAN-KAYPHIK.jpg)
 
-MOOVIANTHAN-KAYPHIK(aka "shinning ones")
+MOOVIANTHAN-KAYPHIK(aka "shinning ones")MOOVIANTHAN-KAYPHIK(也就是"闪耀者们") 
 
 They come from constellation Vulpecula.
 
+他们来自狐狸星座.
+
 They have met with (at least) 2 USA Presidents as well as with USSR and (now)Russian leaders and some high-ranking officials.
+
+他们遇见过(至少)2位美国总统当然也有(现今)的俄罗斯领导人和一些高职位的政府官员.
 
 They supply limited amounts of their technology to humans in exchange for the "freedom" to conduct abductions.They do not involve other alien races in this process.
 
+他们提供有限数量他们的技术给人类为了交换"自由"的执行绑架活动.在这个过程中其它外星人不涉及.
+
 They had a big role of Siberian and Tibetan culture.
+
+他们有个很大的角色在西伯利亚和西藏文化.
 
 They still have bases in those areas hidden in the north-face of moutains.
 
+他们仍旧在这些区域有基地隐藏在面朝北边的一些山头.
+
 They have colonized over 40 planets outside our solar system...so far!
+
+他们克隆了超过40个行星在我们太阳系之外...迄今为止!
 
 * * *
 
