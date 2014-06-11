@@ -916,15 +916,25 @@ AINANNA(no image)
 
 The memebers of this race are the cause why Humans coined the term "Martians".
 
+这个种族的成员是导致了为什么人类铸造了“火星人”.
+
 They come from constellation Gemini.
 
-They have had permanent bases on Mars for thousands of years,wehre they mine some sort of a gold-like material.
+他们来自双子星座.
+
+They have had permanent bases on Mars for thousands of years,where they mine some sort of a gold-like material.
+
+他们有永久基地在火星上持续了上千年,他们在那采集一些类似黄金一样的矿石.
 
 ![Screenshot of "Alien_Race_AINANNA_GOLD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA_GOLD.jpg)
 
 First recorded visit to Earth:1235 BC in Japen.
 
+第一次有记录的访问在地球上是:公元前1234年在日本.
+
 Last sighting:Madagascar,2003.
+
+最后目击:马达加斯加,2003.
 
 * * *
 
@@ -932,19 +942,31 @@ Last sighting:Madagascar,2003.
 
 ![Screenshot of "Alien_Race_INDUGUTK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_INDUGUTK.jpg)
 
-INDUGUTK(aka "Tall white")
+INDUGUTK(aka "Tall white")INDUGUTK(也就是 "高 白")
 
 This race has several bases on and in the Moon,where they mine (unkown material).
 
+这个种族有几个基地在月球地表和地下,他们采集(未知的矿产).
+
 They use "slaves" to do most of their work...these "slavesz" are extremely well taken care of,and the Indugutk see them as "indispensable".
+
+他们使用"奴隶"去做大部分他们的活...这些“奴隶们”很少被照看的很好,而且Indugutk视作他们为"不可缺少的".
 
 Their operations on and in the Moon are very secretive.
 
+他们的操作在月球地表或地下非常的隐秘.
+
 They are in almost permanent contact with High-ranking officals from the USA,China and Russian Fed. governments.
+
+他们完全在永久接触高级别政府官员,来自美国,中国和俄罗斯外交政府部门.
 
 They have the ability to shape-shift into an almost perfect Human form.
 
+他们有这样的能力去形状转换为几乎完美的人类型态.
+
 They are also known as "Men in Black",as they use special dark suits(to protect their skin) when in Human-shape while conducting special operations on Earth.
+
+他们是广为人知的"黑衣人",是因为他们使用特别的深色外套(为了保护他们的皮肤)当有类人型态的时候同时在地球上执行特别的操作.
 
 * * *
 
@@ -952,19 +974,31 @@ They are also known as "Men in Black",as they use special dark suits(to protect 
 
 ![Screenshot of "Alien_Race_KILLIMAT-ARR"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KILLIMAT-ARR.jpg)
 
-KILLIMAT-ARR(aka K-ARR)
+KILLIMAT-ARR(aka K-ARR) KILLIMAT-ARR(也就是 K-ARR)
 
 They come from constellation Crux,near Gacrux.
 
+他们来自十字星座,靠近Gacrux星座.
+
 It is a very hard to track down or spot.
+
+非常难去追踪下来或者认出.
 
 Both the USA and Russian military have developed  a special camera and radar system that allows to spot them when they are on Earth.
 
+美国和俄罗斯军方已经研发出来了一种特别的照相机和雷达系统当他们在地球上当时候认出来.
+
 But even then,they have only been sighted 8 times.
+
+但是最终这样,他们也就被目击过8次.
 
 The purpose of their presence is unknown.
 
+他们出现的目的未知.
+
 When they are sighted it is usually in the area known as the Bermuda Trangle.
+
+当他们被目击的通常出现的地方就是已知的百慕大三角.
 
 * * *
 
@@ -972,19 +1006,31 @@ When they are sighted it is usually in the area known as the Bermuda Trangle.
 
 ![Screenshot of "Alien_Race_2017"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_2017.jpg)
 
-2017(no image)
+2017(no image) 2017(无图)
 
 They have only contacted Humans one time:in the USSR in 1935.
 
+他们仅联系过人类时间段在:1935年的苏联.
+
 According to reports they spoke some kind of Slavic dialect.
+
+据报道他们说的是一些斯拉夫方言.
 
 They left a writen message with about 10 sentences.
 
+他们留下一手写的信息大约有10句话.
+
 They come from galaxy UDFJ-39546284.
+
+他们来自UDFJ-39546284银河.
 
 Estimated distance from Earth (our standard) is 13.2 billion light years.
 
+估算距离地球(我们的标准)有13.2亿光年.
+
 They travel by using what other alien races call "worm-hole",which allows them to "bend" space.
+
+
 
 (note from myself and Petro)
 
