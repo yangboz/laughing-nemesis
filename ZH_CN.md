@@ -710,15 +710,27 @@ Last sighting was near Lima(Peru) in December of 2004.
 
 Probably the most enigmatic of all alien races...not much is known about them.
 
+或许最不可思议的外星人种族中...知之甚少的就是关于他们.
+
 They visit Earth around every 300 years.
+
+他们访问地球每隔300年.
 
 Their next visit is supposed to happen anytime now...
 
+他们下一次假定来访问可以发现在现在的任何时间...
+
 They do not reveal themselves,they do not make direct contact with humans.
+
+他们不展现自身,他们不和人类直接接触.
 
 They leave carvings,drawings and writtings on rocks as well as symbols in historical monuments.
 
+他们留下雕刻,壁画和在石头上刻字类似一些有历史意义的山头上的留下的图案.
+
 Their ships have the shape of a "tear drop" and are silver in colour.
+
+他们的飞船有形似"掉落泪珠"和银光的颜色.
 
 * * *
 
