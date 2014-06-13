@@ -1030,15 +1030,19 @@ Estimated distance from Earth (our standard) is 13.2 billion light years.
 
 They travel by using what other alien races call "worm-hole",which allows them to "bend" space.
 
+他们旅行使用了其它外星人称呼的"虫洞",容许他们"扭曲"空间.
 
-
-(note from myself and Petro)
+(note from myself and Petro) (我和Petro的笔记)
 
 On the original ARB(our copy/edition),9 of the sentences left by this race are "blacked-out"...they only one that is not is this one:
+
+在原始的ARB(我们的手印/编辑),这个种族留下的9句话都被"抹黑"了...仅只有一条没有在其中是:
 
 "2017-2022"
 
 According to reports they were tall,had blonde long hair and "smelled like flowers"
+
+基于报道他们个子高,有长长金发和"闻起来像花"特征.
 
 
 * * *
@@ -1051,17 +1055,31 @@ EL-MANOUK
 
 They come from constellation Grus,near the star Alnair.
 
+他们来自天鹤星座,靠近Alnair恒星.
+
 They are one of most peaceful races.
+
+他们是非常爱好和平的种族之一.
 
 They co-created the alliance of the 5 races("Council of the Five"),but are not part of it.
 
+他们联合创建了5个种族联盟("5委员议会"),但是他们不是其中的一份子.
+
 The "Council of the Five" are a group of 5 alien races that protect Humans against less peaceful races.
+
+"5委员议会"由5种外星人种族组成为的是保护人类对付一少部分不爱好和平的种族.
 
 They "coined" the sentence:"5 universes,2500 species,1 race"
 
+他们"创造"了这句话:"5个宇宙,2500物种,1种族"
+
 The Council is supposed to meet on Earth during the last 10 days of August of 2013,the reason being the fact that Earth has been receiving "too many" visits from new races in the past 500 years.
 
+议会假定在地球举行会议时间期间在2013年8月的最后10天,真实背后的原因是地球收到了"太多"来自新种族的访问在过去的500年中.
+
 Last sighting on the Earth: near the Sea of Cortez,September 2002.
+
+最后目击在地球上是:靠近科尔特斯海,2002年9月.
 
 
 * * *
@@ -1074,13 +1092,23 @@ JIGHANTIK
 
 Maintains sporadic contacts with 3 Earth governments,but not the most powerful ones(not USA,Russia or China).
 
+维持零星的接触于地球上的三个政府,但是不最具有权力的国家(非美国,俄罗斯,中国)
+
 Considered to have a violent nature by other races.
+
+被其它种族认为有暴力本质.
 
 They have been visiting Earth for 3.000 years.
 
+他们访问地球已经有3000年了.
+
 They come from constellation Horologium and are known to have as allies the race Maitre.
 
+他们来自时钟星座而且是广为人知的与Maitre种族是联盟.
+
 Last sighting:near Huston,USA,Feburary 1 of 2003.
+
+最后目击:靠近美国休斯顿,2003年2月1日.
 
 
 * * *
@@ -1093,20 +1121,35 @@ JEFOK
 
 They come from constellation Indus.
 
+他们来自印度安星座.
+
 They are known by other races as "peace-makers".
+
+他们被其它种族广为人知为"和平制造者".
 
 They are very advanced technologically.
 
+他们在技术层面上非常先进.
+
 Their first sighting on Earth dates back to 1500 BC.
+
+他们出现在地球时间可以回到公元前1500年.
 
 They met with JFK 3 weeks before he was killed.
 
+他们会见了约翰·菲茨杰拉德·肯尼迪(=John Fitzgerald Kennedy)在他被刺杀三周前.
+
 They have also (around the same time) met with other Human world leaders.
+
+他们同时(大约在同一时间)也会见了其它人类世界领导人.
 
 They have not been seen on Earth since JFK's death.
 
+他们没有在地球上被看到直到约翰·菲茨杰拉德·肯尼迪(=John Fitzgerald Kennedy)死亡.
+
 In 1965 they gave a message to the Human leaders that ran countries with nuclear capability (content unknown).
 
+在1965年他们留给人类领导人信息是运营有核能力的国家(内容未知)
 
 * * *
 
@@ -1118,15 +1161,27 @@ DORSAY
 
 They grow to a maximum height of 0.5 meters (1.6').
 
+他们最高能长到0.5米(1.6英寸).
+
 They have visited Earth at least 250 times.
+
+他们有访问过地球至少250次.
 
 They come from Cassiopeia,where they have 2 home-planets.
 
+他们来自仙后星座,那儿他们有2个主星球.
+
 They eat other alien races as well as Humans.
+
+他们吃其它外星人当然包括人类.
 
 Their race is at least 4 billion years old and they have been in a constant state-of-war with another alien species for 2 billion years.
 
+这个种族是至少有40亿年老了而且他们一只有亿个持续的战斗中与其它外形种族持续了2亿年.
+
 Last sighting on Earth: November 2001,Italian Alps.
+
+最后目击在地球时间是:2001年11月,意大利阿尔卑斯山脉.
 
 
 * * *
