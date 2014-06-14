@@ -1194,18 +1194,31 @@ MAGELL
 
 Known to be a very peaceful race.
 
+已知的非常爱好和平的种族.
+
 They have 2 permanent bases somewhere in South of America.
+
+他们有两个永久基地在南美的某个地方.
 
 They are 100% nocturnal,do not interact with Humans and are described by other alien races as "shy".
 
+他们100%夜间活动,不直接和人类交往而且被其它外星人描述为"害羞".
+
 They harvest insects and rodents by the many thousands on a monthly basis...reason:unknown.
+
+他们收获昆虫和捕捉成千的啮齿动物按月度来...原因:未知.
 
 At least 3 of them have been under Brasilian military custody for the past 12 years.
 
+至少他们中的3个被巴西军方监禁在过去的12年中.
+
 Last sighting:near Oaxaca,Mexico,in 2003
+
+最后目击:靠近瓦哈卡州(位于墨西哥南部),2003年.
 
 They are visited by their own kind (race) every 20 years...the next visit should be around 2016.
 
+他们被他们自己同类(种族)访问每20年...下一次访问的时间大约在2016年.
 
 * * *
 
