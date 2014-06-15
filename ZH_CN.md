@@ -1230,6 +1230,8 @@ AKART
 
 They come from constellation Sextans.
 
+他们来自六分仪星座.
+
 One of their ships crashed outside of Varginha(Brazil) in 1996.
 
 2 of its occupants are under USA custody,after having paid billions of dollars to the Brazilian government.
