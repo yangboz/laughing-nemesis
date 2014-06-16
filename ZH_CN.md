@@ -1234,12 +1234,19 @@ They come from constellation Sextans.
 
 One of their ships crashed outside of Varginha(Brazil) in 1996.
 
+他们当中一艘飞船坠毁在瓦尔金哈(巴西)1996年.
+
 2 of its occupants are under USA custody,after having paid billions of dollars to the Brazilian government.
+
+其中2个船员被美国拘禁,这是在美国支付上十亿的美元给巴西政府之后.
 
 They have the fastest ships of any known alien races.
 
+他们有速度最快的飞船超出其它已知的其它外星人种族.
+
 Last sighting:February 2002,near Varginha (Brazil)...again!
 
+最后目击:2002年2月,靠近瓦尔金哈(巴西)...又一次!
 
 * * *
 
@@ -1251,23 +1258,43 @@ MAITRE
 
 They have 2 home-planets in constellation Megopei.
 
+他们有两主星球在Megopei星座.
+
 They have the same average height as Humans and are considered by many alien races as "parasites".
+
+他们有同样的平均身高类似人类而且被很多外星人种族看作是"寄生虫".
 
 Visited Earth for the first time during the pre-historic period (date unknown).
 
+访问地球十在第一次史前时代(时间未知).
+
 Abduction of Humans is carried out openly.
+
+绑架人类是公开实施的.
 
 They have the goal of colonizing Earth...that has not happened because of protection from other alien races,such as the one's in the "Coucil of the 5".
 
+他们有目标是在地球开拓殖民地...但是没有因为地球已经被其它外形种族保护,诸如"5委员议会"之一.
+
 They are hermaphrodites and their life span is 120 years.
+
+他们雌雄同体而且他们的生命周期能到120年.
 
 They have colonized at 26 planets.
 
+他们克隆了26个星球.
+
 They have abducted at least 5.000 Humans(male).
+
+他们绑架过至少5000个人类(男性).
 
 They have visited Earth at least 200 times.
 
+他们访问过地球至少200次.
+
 Last sighting:September 2006 near Nome,Alaska,USA.
+
+最后目击:2006年9月,靠近诺姆(美国阿拉斯加城市).
 
 
 * * *
@@ -1280,24 +1307,43 @@ DRIES
 
 Their height is around 2.5 meters(8')
 
+他们身高大约2.5米(8英寸)
+
 They have a very complex structure of the skull.
+
+他们有已个非常复杂的头骨结构.
 
 Visited Earth at least 20 times.
 
+访问过地球至少20次.
+
 They carry out Human abductions which they use for Human reproduction.
+
+他们实施人类绑架活动为的是人类繁殖.
 
 They have abducted at least 520 Humanns(males and females).
 
+他们已经绑架了至少520个人类(有男有女).
+
 They come from the "third" star in constellation Cetus.
+
+他们来自第"3"个太阳在鲸鱼星座.
 
 They have 2 home-planets and  have colonized at least 40 planets with the help of "slaves".10 of those planets were taken with the use of force.They work together with 3 other races. They mostly eat animal protein derived products.
 
+他们有2个主星球而且克隆两至少40个星球在"奴隶"的帮助下.其中10个星球是在用武力的情况下.他们和其它三个外形种族一起合作干活.他们大多数吃动物蛋白制品.
+
 According to alien reports,they are not "mentally/spiritually" prepared to interact with most other races.
+
+通过外星人报道,他们不是"心智/精神上"准备和其他大部分外星种族交往.
 
 Their 2 home-planets chemical composition is similar to Earth.
 
+他们的2个主星球化学组成成分和地球类似.
+
 They are supposed to "reveal" themselves to Humans in an open manner in 2022.
 
+他们假定去"展现"自己给人类以一种开放的仪式在2022年.
 
 * * *
 
@@ -1309,19 +1355,31 @@ LANG
 
 Small spices growing only up to 70 centimeters(2').
 
+小部分种族仅仅只能长到70分米(2英寸).
+
 They come from the "sixth star" in constellation Coma Berenices.
+
+他们来自"第6个太阳"在后发星座.
 
 They have 3 home-planets(maybe 4) and have colonized at least 10.
 
+他们有3个主星球(或许4个)而且克隆了至少10个星球.
+
 They were one the first races to visit Earth.
+
+他们是最早访问地球的外形种族之一.
 
 They were the race that started the "stories" about Fairies.
 
-2 alien races claim that they have abducted over 10 million Humans throughout History(that number is highly disputed by 
+他们曾经是有关小精灵"故事"开始的种族.
 
-2 other races...they state that the number is highly lower...and 1 race even made a statement to Russian President saying that the race Lang has bever abducted any Human).
+2 alien races claim that they have abducted over 10 million Humans throughout History(that number is highly disputed by 2 other races...they state that the number is highly lower...and 1 race even made a statement to Russian President saying that the race Lang has bever abducted any Human).
+
+2个外星人种族宣布到他们有绑架超过1000万人类在过去的历史中(这个数字被其它两个种族热度争议过...他们称述数字或高或低...而且1个种族甚至给俄罗斯总理陈述道Lang种族从来没有绑架过任何人类).
 
 Last sighting: New Zealand,in 2006... a group of 20 members.
+
+最后目击:新西兰,2006年...20个人的群体.
 
 * * *
 
