@@ -1463,21 +1463,39 @@ GRAYSLI
 
 Their height averages the same as that of Humans and they are covered in a soft silky hair.
 
+他们的平均身高和人类差不多而且他们外表裹着一层柔软的银光色的毛发.
+
 They have 2 home-planets in the Virgo star system.
+
+他们有2个主星球在处女星太阳系统.
 
 They have visited Earth at least 12 times.
 
+他们有访问过地球至少12次.
+
 Their first visit happened during the era(dinasties) of Egypt's Pharaohs,around 3.000 years ago.
+
+他们头次访问发生在埃及法老纪元(朝代),大约3000年前.
 
 They spent 10 UN-interrupted years there during that time.
 
+他们花了连续不间断10年过来在那个年代.
+
 The Djoser pyramid was built in their honour.
+
+塞尔金字塔为了他们荣耀所建.
 
 They have been keeping a close look at Human's development for the past 200 year,knowing that some powerful humans can (and are) be mislead by some alien races (disguised as "humans").
 
+他们一直有近距离查看人类的发展在过去的200年期间,已知的一些强大的人类能(且能)被误导经过其它外形种族(伪装为"人类").
+
 Only 6 of them travel each time in their ships.
 
+仅仅他们当中的6个通过他们飞船太空旅行在每一段时间.
+
 Last sightings: July-2002 and February-2004
+
+最后目击:2002年-7月和2004年-2月.
 
 * * *
 
@@ -1489,25 +1507,47 @@ ANUNAKENE(aka Anunnaki)
 
 They come from planet Nibirue (aka Nibiru).
 
+他们来自尼比鲁行星.
+
 Their planet is part of the same solar system as Earth,but with a much longer orbit...it comes closer to the Sun every 4.000 years,and not every 3.500 years as commonly accepted.
+
+他们的星球是类似太阳系统中的地球一样,但是有更远的轨道...它每隔4000年更加靠近太阳,而且不是每隔3500年普遍认为的.
 
 They resemble Humans but are higher (2.5 meters/8') and more muscular.
 
+他们和人类相似但是更高(2.5米或者8英寸)而且更肌肉发达.
+
 When they first visited Earth there were already other races established here...some malevolent and with supernatural powers.
+
+当他们头次访问地球的时候已经有其它外星种族在那建立了...一些有恶意的使用超自然的力量.
 
 The Anunakene defeated them and became the most powerful race on Earth.
 
+Anunakene打败了他们然后成为最有权利的种族在地球上.
+
 They genetically engineered the most intelligent non-alien beings on Earth (us...at the time not much more than smart primates) in order to have a race of slaves at their disposal.
+
+他们在遗传基因工程剪造性的最智能的非外星人在地球(我们...在当时而不是比灵长类时段)为的是有一个奴隶种族可以自由处理.
 
 At the time Samael and Lilith were the Annunakene King and Queen.
 
+在塞缪尔和李莉斯(古代闪族传说中的女妖；常出现在荒凉地带；袭击儿童；希伯来民间传说中亚当的第一个妻子)时代他们就是Annunakene国王和皇后.
+
 They were not aware of the presence of Reptilians on Earth.
+
+他们不担心在地球上的爬行军的存在.
 
 They only cooperate with one other race:the Zeta Reticulai.Not to be confused with the Solipsi Rai (aka "grays").
 
+他们仅仅和一个其它外形种族合作过:Zeta Reticulai.不是一直被混淆的Solipsi Rai (也就是"灰人").
+
 Eventually they left Earth (unknown reasons) but before they left they created a sub-species of the Zeta...this specises eventually became rulers of Egypt (Pharaohs) until th Reptilians infiltrated them (as Temple Priests) and ended their Reign.
 
+最终他们离开来地球(原因未知)但是在他们离开之前他们创建了子种族在Zeta...这个种族最终成为埃及(法老)的领导者直到爬虫军渗透进来(作为神庙祭司)而且终结他们的统治.
+
 They gave birth to the legends about "giants".
+
+他们产生了关于"巨人"的神话传说.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -1517,11 +1557,19 @@ ANUNAKENE(aka Anunnaki)
 
 They will return one day as promised by themselves,however the date of their return is still mystery.
 
+他们将来某天会回来像他们自己许诺的一样,然而具体的他们返回的日期仍然很神秘.
+
 They do know all that is happening on Earth as well as in other planets where they had influence (and/or still have).
+
+他们确实知道所有的地球上发生的事情形同在其它星球他们所影响到的(亦或仍旧).
 
 The proximity of planet Nibirue (aka Nibiru) dose cause cosmic instability and weather-related repercussions in all planets of our solar system,but dose not cause the amount of destruction that it is usually accepted and believed.
 
+亲近尼比鲁行星确实导致了宇宙无边的不安定而且天气相关的反响在我们太阳系的所有的星球,但是没有导致毁灭性的数量以致它能普遍接受和相信.
+
 How far they are it is still mystery.
+
+他们还有多远一直是很神秘.
 
 * * *
 
