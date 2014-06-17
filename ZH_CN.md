@@ -1391,17 +1391,31 @@ SMAD(no image)
 
 They come from Planet Svokk,constellation Battteray.
 
+他们来自斯沃克星球,巴塔雷星座.
+
 They ships have a conical shape.
+
+他们的飞船有一个圆锥体的形状.
 
 They resemble Humans in appearance.
 
+他们和人类的外表很相似.
+
 According to 1 alien race they only have 6 ships left.
+
+通过一个外形种族他们仅仅还留下6艘飞船.
 
 They colonized 20 planets,18 of them were inhabited.
 
+他们克隆了20个星球,其中的18个已经在栖息.
+
 They first visited Earth 2500 years ago and are very interested in our religious beliefs.
 
+他们第一次访问地球是在2500年前而且他们对我们的宗教信仰非常敢兴趣.
+
 They are a race in decline ("weakening",according to other alien races.
+
+他们是一个在衰落的种族("弱化",相对于其它外星种族).
 
 * * *
 
@@ -1413,17 +1427,31 @@ TENGRI-GENGRI
 
 They come from planet Tengri(galactic sector 56,star system F-1342).
 
+他们来自腾日星球(银河扇区56,太阳系统F-1342).
+
 They live underground and have popluation of 10 million.
+
+他们在地下居住而且有1000万人口.
 
 First visit to Earth:10.000 years ago.
 
+首次访问地球:10000年前.
+
 They do not need  an atmosphere or water to survive.
+
+他们确实需要一个大气环境和水来生存.
 
 They have 1 ship that can accomodate 5 million of their kind.
 
+他们有一个飞船能容纳居住500万人口.
+
 They have had contact with Human governments throughout History.
 
+他们已经在历史长河中和人类政府有联系了.
+
 Last known sighting:near Buenos Aires,Argentina,in 2003.
+
+上次已知的目击:靠近布宜诺斯艾利斯(阿根廷首都),2003年.
 
 * * *
 
