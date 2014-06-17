@@ -1581,23 +1581,43 @@ AFIM
 
 They come from constellation Lyra.
 
+他们来自天琴星座.
+
 They call themselves "Afim Spiantsy" because of a war that they fought against a race called "Spiantsy"...the "Spiantsy" race had 12 times more members and 35 times more ships and resources than "Afim"...but the "Afim" won in the end...
+
+他们自称为"Afim Spiantsy"因为一场战争他们对抗的是一个外形种族名叫"Spiantsy"..."Spiantsy"种族有12倍成员和35倍多的飞船和资源也比"Afim"多...但是"Afim"最终还是赢了.
 
 So they added the "Spiantsy" name to their own race-name,as "warning" to other races...
 
+所以他们追加了"Spiantsy"名字到他们种族名后面以是"警告"其它外形种族...
+
 They are smaller than Humans in stature and their skin is covered with blue spot,darker for males and lighter in females.
+
+他们比人类更小在身高方面,他们的皮肤披裹着蓝色斑点,比男人更暗而且比女人更轻.
 
 They planet is called Crimea Ai-Petri.
 
+他们的星球被称呼为克里木半岛Ai-Petri.
+
 Technologically,they are extremely developed...they can travel from their planet to Earth in 20 earth-time.
+
+技术上来说,他们极度发达...他们能从他们星球访问到地球在20地球时间内.
 
 They do not need oxygen,they do have an atmosphere but it is composed mainly of an hydrogen-mix environment.
 
+他们不需要氧气,他们确实有大气环境但是主要是有氢混合的环境.
+
 They have colonized 10 planets in a non-violent way.
+
+他们克隆了10个星球以非暴力的方式.
 
 When they are close to Humans they can become invisible,but humans when around them will feel a certain amount of unexplained anxiety.
 
+当他们靠近人类的时候他们能变得不可见,但是人类离他们很近的时候将能感觉到一股莫名奇妙的不安.
+
 Their ships are small and spherical in shape.One of the reasons they visit us is to study what they call "Human Deviation",in order to determine the development of the Human race.
+
+他们的飞船很小而且是球体形状.其中一种他们访问我们的原因是学习他们称呼为的"人类多样化",为的是以测定人类种族的发展.
 
 * * *
 
@@ -1609,19 +1629,35 @@ SOLIPSI RAI
 
 Peaceful and harmonious race.
 
+和平和和谐的种族.
+
 They 1 main leader and his name is Ymartyyn.
+
+他们1个主要领导人名字是Ymartyyn.
 
 Their civilization is 2 billion years old...once they were at same level of development as ourselves.
 
+他们的文明已经有20亿年了...曾经一顿他们有我们的同样的发展水平.
+
 They have no colonized...they are completely focused on the development of other planets and races.
+
+他们没有克隆过...他们完全专注于发展其它星球和种族.
 
 They come from constellation Cygnus.
 
+他们来自天鹅星座.
+
 They do have one powerful weapon that keeps some neighbouring violent races away...and others that may try to invade them...at one time race Maitre lost 5 ships because of it.
+
+他们有一个非常强大的武器能让其它邻居暴力外形种族远离...而且其它种族或许尝试过侵略他们...曾经一度Maitre种族丧失了5艘非常因为这事.
 
 They said that the Human race,in the next few thousands of years,still have 650 options left to save ourselves,our planet and to guarantee a feature for our race...but it will all depend on our ability to travel through space.
 
+他们说到人类种族,在后续的几千年,仍旧有650个选项去拯救自我,我们的星球切被许诺为我们种族的未来...但是它也将依靠我们的能力去太空旅行.
+
 They are Solipsi Rai,but we call them..."grays"!
+
+他们是Solipsi Rai,但是我们称呼他们为..."灰人"!
 
 * * *
 
