@@ -19,3 +19,9 @@ Localization
 EN_US: (https://github.com/yangboz/laughing-nemesis/blob/master/EN_US.md)
 
 ZH_CN: (https://github.com/yangboz/laughing-nemesis/blob/master/ZH_CN.md)
+
+
+iOS App refs
+================
+
+http://ogleearth.com/2007/12/google-sky-api-early-usage-examples/
