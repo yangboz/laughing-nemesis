@@ -1669,13 +1669,23 @@ PUXHITY(no image)
 
 This race war very influential in some South and Central American culture.
 
+这个种族的战争对一些南部和中部美洲文化有非常大的影响.
+
 At one time they had over 2.000 members living amongst Humans in those regions...until one day when most of them left,leaving behind only 25 of their own...Humans then killed them.
+
+曾经一度时间他们有超过2000个成员和人类居住在这些区域...直到一天当他们中大多数离开,剩下的只有25个他们当中一员...人类然后杀死了他们.
 
 They have not returned to Earth since that "incident".
 
+他们还没有返回到地球自动那次"事故"之后.
+
 They were known to be very tall...some reports from one alien race say that some of them were as tall as 4 meters high(13').
 
+他们被认为非常高大...一些报道从一个外形种族说到他们中一些身高能到4米(13英寸).
+
 The reasons why the local Humans killed the 25 Puxhity's is unknown.
+
+当地人类杀死这25个Puxhity's的原因未知.
 
 * * *
 
@@ -1687,13 +1697,23 @@ X5-TYKUT
 
 This race was created by the race Maitre in order to be used as slaves...and that is still what they serve for.
 
+这个种族是被Maitre种族创建为的是用来作为奴隶...而且一直到现在他们还在服务中.
+
 They are often sent by the Maitre to security-sensitive regions,working as  messengers and also to conduct abductions.
+
+他们经常被Maitre派遣去安全敏感区域,工作为信使和同时实施绑架.
 
 They can live forever as they are not organic...however the raw materials that the Maitre need to "build" one are very rare. So there are not many of them (estimation: less than 300).
 
+他们能活到永久就像他们不是器官组成的...然而Maitre所需要的原材料需要去"建造"之一非常稀罕.因此他们的数量不是很多(评估:少于300).
+
 They are able to use "rational thinking" as well as flying ships and many other tasks.
 
+他们能使用"推理思考"诸如驾驶飞船和很其它任务.
+
 Last seen on Earth in July-1997,near Brisbane,Australia.
+
+最后一次目击在地球是1997年7月,靠近布里斯班(澳大利亚地名).
 
 * * *
 
@@ -1705,17 +1725,31 @@ TANZANY
 
 They come from constellation Perseus,near the star Gorgonea Secunda.
 
+他们来自英仙星座,靠近Gorgonea Secunda恒星.
+
 They have caused thousands (maybe millions) of deaths on Earth and other planets as one of their interests (or area of "study") is how other races react to tragedies and cataclysms.
+
+他们导致了成千(或许上万)的死亡事件在地球和其它星球由于他们爱好之一("研究"领域)就是其它种族对悲剧和灾难的反应.
 
 Technologically they are extremely advanced.
 
+技术层面上来说他们极度先进.
+
 One alien race reported that they (the Tanzany) caused both the crashing of the Hindenburg as well as the sinking of the Titanic.
+
+一个外星种族报道到他们(the Tanzany)导致了兴登堡(波兰南部城市扎布热)飞艇坠毁和泰坦尼克号(船名)沉没.
 
 They can live up to 500 years and are around 1.7 meters tall (5').
 
+他们能活到500岁和大约1.7米高(5英寸).
+
 They are avoided by other alien races.
 
+他们尽量避免其它种族.
+
 Last sighting:January 1999 in New York state.
+
+最后目击:1999年1月在纽约州.
 
 * * *
 
@@ -1727,17 +1761,31 @@ AIRK
 
 They come from constellation Ophiuchus,near YedPrior.
 
+他们来自蛇夫星座,靠近YedPrior.
+
 Considered by other races as peaceful.
+
+被其他种族看认为非常和平.
 
 The purpose of their visits is unknown...they never stay long on Earth and do not interact with Humans or other aliens here.
 
+他们到访的目的未知...他们从没长久待在地球上而且没有和人类和其它外形种族有交往.
+
 They mostly use Earth as a "stop" (to quickly gather something they may need)before they leave to their real destination.
+
+他们大多数使用地球作为一个"经停站"(为了快速收集一些他们需要的东西)在他们离开之前去到达真正的目的地.
 
 They are mostly nocturnal.
 
+他们大多数是夜间活动.
+
 Their ships emit a bright-orange light and are (most of them,not all) octogonal in shape.
 
+他们的飞船发射一种亮黄的灯光而且(大部分他们,不是所有)外形上是八边形.
+
 Last spotted near London(England) in May 2003.
+
+最后一次报道靠近英国伦敦在2003年5月.
 
 * * *
 
@@ -1749,19 +1797,35 @@ VINNYTVARY
 
 They come from constellation Pavo.
 
+他们来自孔雀星座.
+
 They a very respected and peaceful race presumably with mystical powers.
+
+他们被看作为非常尊敬和和平的种族推测有神秘能量.
 
 They have been coming to Earth at least since 1.000 AD.
 
+他们到达过地球至少是公元前1000年.
+
 They do not carry out abductions and do not interact with Humans.
+
+他们不实施绑架和与人类交往.
 
 They can live up to 2.000 years.
 
+他们能活到2000岁.
+
 Their height is similar to that of a normal Human.
+
+他们的身高和正常人类很相似.
 
 They are vegetarians.
 
+他们是素食主义者.
+
 Last sighting:near Odessa,Ukraine in July of 1995.
+
+最后目击:靠近奥德萨,乌克兰1995年7月.
 
 * * *
 
@@ -1773,19 +1837,35 @@ STROM
 
 They come from constellation Ursa Minor.
 
+他们来自小熊星座.
+
 Stroms are invertebrates and coelenterates.
+
+风暴是无脊椎动物和腔肠动物.
 
 Their average height is 2 meters(6.5').
 
+他们的平均身高是2米(6.5英寸).
+
 Vegetation is of great importance to their culture...and the main reason for their visits to Earth.
+
+植物对他们的文化来说非常重要...而且也是他们访问地球的主要原因.
 
 They have been on Earth at least 200 times. They act with extreme caution and are rarely seen by Humans.
 
+他们有访问过地球至少200次.他们行动及其小心而且很少被人类发现.
+
 First visited Earth at the end of the last big Ice Age.They have 20 colonies in the Via Lactea galaxy.
+
+首次访问地球是在大冰河时代的结束.他们有20个克隆星球在银河星系中.
 
 They ships have the shape of an octagon.
 
+他们的非常有一个八角形形状.
+
 Last sighting:October 1976 in Oregon,USA
+
+最后目击:1976年10月，俄勒冈(美国州名)
 
 * * *
 
