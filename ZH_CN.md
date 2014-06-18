@@ -1877,17 +1877,31 @@ KALENIA
 
 They come from constellation Aquila,star Tarazed.
 
+他们来自天鹰星座,塔拉茨恒星.
+
 They have colonized 3 planets and have a life span of 150 years.
+
+他们有克隆了3个星球而且有着150岁的生命线.
 
 They are often sighted in northern Africa and the Sahara region.
 
+他们经常被目击在北美和撒哈拉区域.
+
 First visited Earth around 300 BC.
+
+首次访问地球大约在公元前300年.
 
 They do not conduct abductions.
 
+他们不实施绑架.
+
 Main interest about Earth:minerals.
 
+主要的兴趣在地球上是:矿产.
+
 Last sighted in 2003 near a volcano in Iceland.
+
+最后目击是在2003年靠近冰岛的某火山.
 
 * * *
 
@@ -1899,17 +1913,31 @@ MYTHILAE
 
 Once related to the Reptoid species,they are not,however,Reptilians.
 
+曾经像爬虫的外星人种族相关,他们不是,然而,就是爬虫.
+
 They come from constellation Serpens,star Alya.
+
+他们来自巨蛇星座,Alya恒星.
 
 First visit to Earth was only in June 13,1965.
 
+首次访问地球仅是在1965年6月13日.
+
 They do not represent any threat to Humans.
+
+他们没有表现任何威胁给人类.
 
 Often seen around Antarctica.
 
-The season for their visits is unknown.
+经常被看到是在南极洲附近.
+
+The reason for their visits is unknown.
+
+他们访问的原因未知.
 
 Last sighting:Antarctica,May 1,1997.
+
+最后目击:南极洲,1997年5月1日.
 
 * * *
 
@@ -1920,6 +1948,8 @@ Last sighting:Antarctica,May 1,1997.
 REPTILIANS
 
 The most known and feared of the Reptoid species (there are at least 3).
+
+他们
 
 They have been permanently on Earth for over 15.000 years(confirmed) but the belief is that they may have been here(permanently or on-and-off) for millions of years.
 
