@@ -1182,7 +1182,7 @@ They do not represent any threat to Humans.
 
 Often seen around Antarctica.
 
-The season for their visits is unknown.
+The reason for their visits is unknown.
 
 Last sighting:Antarctica,May 1,1997.
 

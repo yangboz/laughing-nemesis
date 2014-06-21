@@ -1949,17 +1949,27 @@ REPTILIANS
 
 The most known and feared of the Reptoid species (there are at least 3).
 
-他们
+他们是大多数直到而且害怕的爬行外星种族(这有至少3个).
 
 They have been permanently on Earth for over 15.000 years(confirmed) but the belief is that they may have been here(permanently or on-and-off) for millions of years.
 
+他们已经永久在地球上至少15000年(确认的)但是相信他们在这(永久或者时断时续的)在这百万年中.
+
 They come from constellation Draco.
+
+他们来自天龙星座.
 
 They have a presence in thousands of planets and have at least colonized 500 by means of "infiltration" within the leadership of each planet...
 
+他们出现在上千个星球上而且至少克隆了500个星球凭借"渗透"各种星球领导的方式...
+
 Some (not all) of their members have the power to shape-shift as well as telepathic abilities.
 
+一些(不是全部)他们中的成员拥有能力去变形也有心灵感应的能力.
+
 On Earth they did not need to infiltrate Human leadership all the time as they often lived side-by-side with Humans(most of them unaware) and "lived" our evolution ( all aspects of it).
+
+在地球上他们不需要渗透到人类领导人,大多数时间他们经常和人类并行居住(他们大多数没有发觉到)而且"住扎"我们的演变(它的所有方面).
 
 * * *
 
@@ -1971,13 +1981,23 @@ REPTILIANS
 
 They are considered one of the most technologically advanced species,but they prefer to work in the "shadows",using that as an advantage for their progress or plans/agenda.
 
+他们被认为最有先进技术的种族之一,但是他们更爱好在"阴影"下工作,在对他们先进计划/进程中进行.
+
 They can travel inter-dimensionally (mot race can't) and some of their high-ranking members also have the power to become invisible... to have that power a reptilian must first be accepted in what they call "The Draco",an elite group of Reptilians.
+
+他们能到交互维度旅行(不是所有的种族都能)而且他们中的一些高阶级成员也有能力隐身...为了拥有那些能力,一个爬虫类首先必须接受所谓的能被称呼为"天龙",爬虫类的一个精英组织.
 
 The Reptilians from "The Draco" are infiltrated(or even were co-founders) of the Illuminati.
 
+爬虫类从"天龙"过来的被渗透(或者甚至被共同创建)于光明/先知派.
+
 They have 3 main bases on Earthz:near the Bermuda Triangle, somewhere off the coast of Denmark and off the coast of New Zealand.
 
+他们有3个主要的基地在地球上:靠近百慕大三角,某处靠近丹麦的海岸和离岸于新西兰.
+
 Some say that they will never leave...at least on their own!
+
+一些人说到他们将不回离开...至少他们自己不会!
 
 * * *
 
@@ -1989,19 +2009,35 @@ ALCOHBATA
 
 Presumably they have over 5.000 ships and have colonized over 100 planets on their own.
 
+据推测他们有超过5000艘飞船而且克隆了超过100个星球靠他们自己.
+
 Considered by other aliens as one of the "parasite" races.
+
+被其它外星人看为是"寄生生物"种族之一.
 
 Abduction of Humans are frequent and on-going...
 
+绑架人类很频繁而且一直进行中...
+
 Purpose of Human abductions:unknown.
+
+绑架人类目的:未知.
 
 They do not like to interact with other alien races.
 
+他们不喜欢和其它外星种族交往.
+
 They come from constellation Perseus and are extremely agressive.
+
+他们来自英仙星座而且极度具有攻击性.
 
 Suspected to have been involved in several airplane crashes,such as flight 007 over the USSR in 1983.The USSR leadership took the blame for that crash...
 
+可疑的是他们有参与很多起空难,比如航班007经过苏联在1983年.苏联领导人承受了这次事故的职责...
+
 Last seen:September 2001 in Canada.
+
+最后目击:2001年9月在加拿大.
 
 * * *
 
