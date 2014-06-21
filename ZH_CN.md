@@ -2049,13 +2049,23 @@ NEGUMAK(aka Gnomopo)
 
 First known visit to Earth happened only in 1989.
 
+首次已知访问地球发生在1989年.
+
 They abduct Humans and exercise control over the minds of their captives,which they use for their own benefit after the captives release.Reason:unknown.
+
+他们绑架人类而且训练通过控制他们的俘虏中的心智,这些是为了他们的利益当这些俘虏被释放以后.
 
 This race was the "inspiration" for the alien race in the movie "Independence Day".(note of Petro and me:the ARB states the same thing about another race)
 
+这个外星种族是"启发"了电影"独立日".(Petro和我笔记:<<ARB>>称述了同样的事情关于其它种族)
+
 They are one of oldest races.
 
+他们是最古老的种族之一.
+
 They are one of the races that most Human governments fear when considering the feature of Humans.
+
+他们是种族之一让大多数人类政府害怕的当设想人类未来的时候.
 
 * * *
 
@@ -2067,13 +2077,23 @@ ZETA RETICULAI(aka Shamtbhala)
 
 Often confused(because of their appearance)with the races Maitre and Solipsi Rai(the "grays").
 
+经常混淆(由于他们的外表)于Maitre种族们和Solipsi Rai("灰人").
+
 They come from constellation Nets.
+
+他们来自网星座.
 
 They are allies of the Anunnaki and cooperate with them in different planets...they are the representants of the Anunnaki on Earth and send them information about Humans and this planet at least 25 times per year.
 
+他们是Anunnaki的联盟而且和他们合作在不同的星球...他们代表了Anunnaki在地球上而且传送了信息关于人类和这个星球至少每年25次.
+
 The Anunnaki createed a sub-species of the Zeta with the purpose of making them look more Human-like...but leaving enough physical differences for Humans to distinguished them.
 
+Anunnaki创建了一个Zeta的子种族目的是让他们看起来更像人类...但是留下了足够的物理上的区别为了人类去区别他们.
+
 They became some of the Pharaohs of Egypt.
+
+他们成为了埃及法老时代的一部分.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -2083,13 +2103,23 @@ ZETA RETICULAI(aka Shamtbhala)
 
 The most well known was Akhenaten,who was removed from power by Reptilians...they infiltrated themselves in the Court as Temple Priests.
 
+广为人知的是Akhenaten,谁被爬虫类去除了能量...他们自我渗透在法庭就像神庙的牧师.
+
 First reports of Zeta's on Earth go back to 4.000 AD,but that number is most likely much higher.
+
+首次报道关于Zeta在地球回溯到公元前4000年,但是这个数字更好像靠前.
 
 They were the first hybrids to be engineered by the Anunake(Anunnaki).
 
+他们是首个混合物种是由Annunake(Anunnaki)工程创建出来的.
+
 The Zeta sub-species still exists on Earth and still (at least 30%) present the same physical differences created in them.
 
+Zeta的子种族仍旧在地球上存在而且一直(至少30%)表现为同样的体格区别这些被他们创造的.
+
 The sexual organs of the sub-species are in very aspect the same as that of Humans.
+
+他们的子种族的性器官在外观上和人类非常一致.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -2099,7 +2129,11 @@ ZETA RETICULAI(aka Shamtbhala)
 
 The Zeta's still exist on Earth in both forms...the "original" and the hybrid sub-species.
 
+Zeta一直存在在地球上以两种形式..."原始的"和混合的子种类.
+
 Their location on Earth is...unknown !
+
+他们所在地球的位置...未知!
 
 ![Screenshot of "Alien_Race_Zeta_Reticulai_s"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Zeta_Reticulai_s.jpg) ![Screenshot of "Alien_Race_Zeta_hybrid_sub-species"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Zeta_hybrid_sub-species.jpg)
 
@@ -2114,13 +2148,23 @@ TARICE(no image)
 
 Their origin is unknown.
 
+他们的出原地未知.
+
 They are often seen near(or flying by) volcanoes.(Identified due to the exquisite nature of their ships)
+
+他们经常被看到靠近(或者飞过)火山.(经鉴定的对他们飞船性质十分注重)
 
 They have never contacted Humans and there are no reports of violence or abductions.
 
+他们从没有联系过人类而且没有他们相关的暴力和绑架的报道.
+
 Even though they are discreet their presence on Earth is frequent and they do not try to hide from view.There are several contradictory reports about their appearance.
 
+尽管这样他们还是谨慎出现在地球很频繁而且他们不尝试隐藏被看见.他们由几个矛盾的报道关于他们的外表.
+
 Last sighted:Off the coast of Norway,in 2000.
+
+最后目击:在挪威的海面上,2000年.
 
 * * *
 
@@ -2132,15 +2176,27 @@ PURITAV-ILLUMU(aka Nosyv-7)
 
 Their origin is unknown.
 
+他们的出原地未知.
+
 They are often sighted in the northwest of the USA (specially in the Oregon area).
+
+他们经常被目击到在美国的东北地区(特别是在俄勒冈地区).
 
 They have a special interest about Earth's oceans and are known to have underwater ships (aka USO's).
 
+他们由特别的星球有关地球的海洋和被知道为由水下飞船(也就是USO).
+
 In the 1980's and 1990's they almost crashed a few times against US Navy ships while the americans were testing new sonar and radar systems.
+
+在1980和1990年代他们几乎毁坏了好几次针对美国海军船只哪时候美国人在测试新的声纳和雷达系统.
 
 They are peaceful and mostly nocturnal.
 
+他们非常爱好和平俄且大多数夜间活动.
+
 Last sighted in the year 2000 near San Francisco,USA.
+
+最后目击在2000年靠近美国圣弗朗西斯科.
 
 * * *
 
@@ -2152,15 +2208,27 @@ X-1Z(aka "X",no image)
 
 Only sighted 2 times on Earth.
 
+仅仅在地球上出现了2次.
+
 According to reports from other races they are able to shape-shift as many as 4 times in 10 seconds.
+
+通过其它种族的报道他们能改变形状,10秒钟能变4次.
 
 Their origin is unknown.
 
+他们的出原地未知.
+
 They conduct Human abductions and perform medical experiments on the subjects.
+
+他们实施绑架人类而且执行医学实验在一些课题上.
 
 The have been visiting Earth since the mid-1500's .
 
+他们一直访问地球从1500年中叶开始.
+
 They only 2 confirmed sightings happened near Elazig,Turkey.
+
+他们仅有2次确认目击发生在靠近土耳其伊拉菲克.
 
 * * *
 
@@ -2172,17 +2240,31 @@ CARAVELDI
 
 Known to be (at times) extremely dangerous to Humans as well as to other alien races.
 
+已知(有时偶尔)极度危险对人类像其它外形种族一样.
+
 They come from constellation Chamaeleon.
+
+他们来自蜒星座.
 
 They have been permanently involved in conflicts with a few other races for over 500 (Earth) years.
 
+他们永久性的参与了与一些少数外形组的冲突在(地球)上超过了500年.
+
 They are rarely seen on Earth.
+
+他们很少在地球上看到.
 
 They live up to 150 years.
 
+他们能活到150岁.
+
 Reportedly they are 3 meters tall (9') and have 4 arms.
 
+报道过的他们有3米高(9英寸)而且有4个胳膊.
+
 Last sighting was near New Orleans,USA,in 1976.
+
+最后目击靠近美国新奥尔良,1976年.
 
 * * *
 
@@ -2194,13 +2276,23 @@ ELFFAF
 
 They come from constellation Bootes,near Asellus Primus.
 
+他们来自牧夫星座,靠近Asellus Primus.
+
 They also resemble the "grays" but are not "relatd".
+
+他们也与"灰人"相似但是不是"相关的".
 
 This race has 4 different genders and they are known to be benevolent.
 
+这个种族有4个不同的性别而且他们已知是仁慈的.
+
 The purpose of their visits is unknown,but they seem to have a special interest on raw materials/minerals (?) as they have been  often sighted near old mines.
 
+他们访问地球的目的未知,但是他们看上去有非常的兴趣在原始材料/矿产? 是由于他们经常被目击靠近一些老矿区.
+
 Last sighting:San Isidro de EI General,Costa Rica,in 2005.
+
+最后目击:圣伊西德罗,哥斯达黎加,2005年.
 
 * * *
 
@@ -2212,15 +2304,27 @@ MATRAX
 
 Despite their appearance (installs fear in Humans when sighted) this race is not known to be agressive.
 
+除去他们的外表(恐惧不安，当人类目击他们当时候)这个种族还不知道有没有攻击性.
+
 They can live up to 400 years.
+
+他们能活到400岁.
 
 They come from constellation Delphinus,near Sualocin.
 
+他们来自海豚星座,靠近Sualocin.
+
 They have been visiting Earth for at least 4.000 years,but were sighted quite often during the 19th century.
+
+他们有访问过地球至少4000年了,但是很少被目击到在整个19世纪.
 
 They served as inspiration for the alien race in the movie "Independence Day".(note of Petro and me:this is other -second- mention about a race being used as inspiration for that same movie)
 
+他们担当起在电影"独立日"中的外形种族.(Petro和我的笔记:这是另外一个提及到的有关外形种族被用到同样一部电影作为启发)
+
 Last sighting happened near Marseille,France,in 1996.
+
+最后目击发生在靠近法国马赛,1996年.
 
 * * *
 
