@@ -2336,13 +2336,23 @@ TISAR-3
 
 Their origin is unknown but there are reports stating that it takes them near 2 Earth years to get to this planet.
 
+他们出原地未知但是他们被报道开始说到他们花费了2个地球年让他们来到这个星球.
+
 They are the survivors of an extinct Reptoid race and do not possess the same level of technology or knowledge as other races visiting Earth.They do have some Human characteristics,such as skin.
+
+他们是非常少有的外星爬虫种族的幸存者而且不拥有同样水平的科技或者知识像其它种族一样访问地球.他们确有一些和人类一样的品质,比如皮肤.
 
 In 1977 or 1978,near Siena(Italy),2 of their species were captured after landing behind a church in ruins...3 days later they were transfered to a USA air base still in Italy and finally to an undisclosed location where,supposedly,they still remain...contacts have mentioned somewhere in the South Pacific or in another USA base near Japan.
 
+在1977或者1978年,靠近意大利锡耶纳,他们种族的2个被抓获在他们着陆的在已个教堂后的废墟中...3天后他们被运送到美国在意大利的空军基地而且最终到一个未泄漏的地区,假定是,他们依然...联系被提及到在南太平洋的某些地区或者另外的美国基地靠近日本.
+
 The USSR APIS/3 was able to get a hold of 1 video recording of this species.
 
+苏联APIS/3有能力掌握了一个视频记录有关这个种族的.
+
 Last sighting:January 3 2001,near Victoria,Canada.
+
+最后目击:2001年1月3日,靠近加拿大维多利亚.
 
 * * *
 
@@ -2354,13 +2364,23 @@ ELLINA
 
 Supposedly this is the race that started the myth of Elves(Elf).
 
+据推测这个种族开启了精灵的神秘故事.
+
 They are sighted often in the Germanic countries,deep in the forests.
+
+他们经常被目击在德国的乡村,在森林深处.
 
 They are not known to be lethal to Humans,however they are known as being "prankstes"... it seems that they enjoy scaring Humans when these get too close.
 
+他们已知为对人类是致命的,然而他们也是已知为是"顽皮的人"...好像他们喜欢吓唬人类当他们靠的太近的时候.
+
 It has been reported that they have lured Humans away from their cars in order to steal their possessions...once the Humans are far away from their vehicles (and they already have stolen what they are wanted),they frighten them which makes the Humans leave the location.
 
+有关报道到他们诱惑人类离开他们的汽车为的是偷盗他们的财产...一旦人类人类远离了他们的交通工具(而且他们已经偷盗了他们想要的),他们就吓唬人们让离开他们的位置.
+
 Last sighting:Near Munique,Germany in December 2004.
+
+最后目击:靠近德国慕尼黑,2004年12月.
 
 * * *
 
