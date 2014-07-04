@@ -1473,4 +1473,28 @@ Last sighting:Near Munique,Germany in December 2004.
 
 THE COUNCIL OF 5
 
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
 
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+Very little is known about the five alien races that are part of "The Council of 5".
+
+The races that are part of this Council(previous known as the "The Council of 9") have been protecting Earth and the Humans for as long as there are (alien) records of it.
+
+Some say that they have been protecting the planet even before Humans existed...for millions of years!
+
+An alien reace reported that the "Council of 5" last met on Earth in 1944.
+
+(note of Petro and myself:we found a hand-write note on the ARB dated July-2005 stating that the "Council of 5" is going to meet on Earth during the last 10 days of auguest of 2013.The same not also mentioned the fact that the presence and arrival of those 5 races could cause cosmic event that can affect Earth's atmosphere. And it also said that Humans would be seeing  an increase of alien ships activity during that period) 
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+(continuation of note:the note also states that)
