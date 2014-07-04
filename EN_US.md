@@ -1497,4 +1497,62 @@ An alien reace reported that the "Council of 5" last met on Earth in 1944.
 
 ![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
 
-(continuation of note:the note also states that)
+(continuation of note:the note also states that the meeting of council is to discuss possible threats to Earth and Humans as well as the fact that so many "new" alien races have been visiting Earth "lately"...by "lately" the note states that that means -to the 5- for the past 500 years)
+
+-//-
+
+According to several alien races the "Council of 5"(at the time "Council of 9")has monitored Human evolution since primordial times,since Humans were only a 1 cell marine organism an throughout all natural evolution,when Humans became primate-like creatures and beyond (after the Anunakene,aka Anunnaki,interference...).
+
+According to those same alien races all evolutionary sequences in all planets have a begining and an end(with the exception of minor details due mostly to radical weather changes).
+
+After the Anunakene tampered with the DNA of "primates" and created Humans,the "Council of 5" decided to not only monitor but also to protected us,as they realized that one day Humans would be able to join the other alien races in development and enlightenment.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_ORELA.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCOF5_EGAROT.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_GINVO.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_REDAN.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_EMERTHER.png)
