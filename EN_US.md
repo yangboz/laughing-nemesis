@@ -1556,3 +1556,25 @@ THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
 THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
 
 ![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_EMERTHER.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "The_Council_Of_5_Cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/The_Council_Of_5_cover.png)
+
+THE "COUNCIL OF 5" IS COMPOSED OF THE FOLLOWING RACES:
+
+![Screenshot of "The_Council_Of_5_RACES"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/TCO5_EMERTHER.png)
+
+It is generally agreed that the EMETHER is the most important race not only of the Council but also amongst all known races! They are related to the Solipsi Rai,but much older and advanced in all levels.They were one of the Founder-Race of the Council.
+
+They met with USA President D.Eisonhower in 3 different occasions...they also met with 2 High-Ranking USSR leader in 3 occasions...and they tried(they do not "force" anything upon Humans) to meet with USA President R.Nixon but he refused claiming that it would be too dangerous as they could maybe read his mind and find out about delicate national security secrets concerning the relations with USSR.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+ALIEN FILES
+
+
