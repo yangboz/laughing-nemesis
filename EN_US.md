@@ -1577,4 +1577,24 @@ They met with USA President D.Eisonhower in 3 different occasions...they also me
 
 ALIEN FILES
 
+![Screenshot of "Alien_Files_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_cover.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CNSA_1973_sent"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_1973_sent.png)
+
+In 2003 the China National Space Administration(CNSA) received the reply from the Pioneer Plaques sent in 1972 and 1973 aboard the Pioneer 10 and 11.
+
+Despite many requests and offers from the USA,the EU,Australia and Russia for China to share the information on the reply,the Chinese have done that yet.
+
+![Screenshot of "Alien_Files_CNSA_2003_reply"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_2003_reply.png)
+
+In 1985,3 alien races delivered documents and video to the UN Secretary-General Javier Perez de Cuellar showing evidence of several planets within Earth's solar system that had a daily average temperature of 32 degress celsius(89.6 Fahrenheit) and oceans.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
 
