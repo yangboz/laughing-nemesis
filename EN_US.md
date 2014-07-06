@@ -1597,4 +1597,40 @@ In 1985,3 alien races delivered documents and video to the UN Secretary-General 
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
+![Screenshot of "Alien_Files_CASE_737_LAFIA-NIGERIA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_737_LAFIA-NIGERIA.png)
+
+In August-21-1957 a caucasoid woman was found near Lafia.
+
+She was not dressed "matching" the area nor the time period.
+
+She was taken to a local Dutch land owner and "interrogated".
+
+Reports say that she claimed to be Captain Benjamin Briggs's wife Sarah...
+
+Captain Benjamin Briggs was the Captain of the Mary Celeste,a British-American merchant ship that was discovered on December-4-1872 in the Atlantic Ocean,unmanned and apparently abandoned.
+
+She commited suicide that same day.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Reptilian_shape-shifting_in_progress"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Reptilian_shape-shifting_in_progress.png)
+
+Reptilian shape-shifting in progress
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Reptilian_shape-shifting_in_progress"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Reptilian_shape-shifting_in_progress_02.png)
+
+Reptilian shape-shifting in progress(2)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
 
