@@ -1633,4 +1633,71 @@ Reptilian shape-shifting in progress(2)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
+![Screenshot of "Alien_Files_Paca_Metpa_the_Maitre"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Paca_Metpa_the_Maitre.png)
+
+![Screenshot of "Alien_Files_Paca_Metpa"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Paca_Metpa.png)
+
+The Maitre have been involved in serveral tragedies throughout Human History....
+
+Some of the worst plagues were the knowledge and agreement of the Raptilians, who want the Human population to never go over 8 billion.
+
+![Screenshot of "Alien_Files_coin"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_coin.png)
+
+The Reptilians have abducted female Humans for thousands of years...most of their hybrid offspring are sent away to other planets that they have colonized...some stay on Earth where they become powerful members infiltrated in society.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Mars_abandom_surface_structure"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Mars_abandom_surface_structure.png)
+
+Mars and the Moon have been over mined and explored for the past 33.000 years...the races that do it are going deeper and deeper inside the planet to reach the raw material they want.
+
+Abandoned surface structures can be seen everywhere.
+
+![Screenshot of "Alien_Files_religion_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_religion_00.png)
+
+All Human religions have been created by alien races that want to keep Humans divided and the TRUTH about CREATION in secret.They roam the corridors of religious power are members of pseudo-religions-spiritual-Human organizations such as The Masons(most members of The Masons are clueless about the true intensions of a few)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_information_USSR_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_information_USSR_00.png)
+
+Since the information of the USSR its leaders were extremely interested about all the information they could get on aliens.They know of their existence and visit the death of Russia's Czar Nicholas II had been planned by aliens and their own circles of power had already been infiltrated.
+
+![Screenshot of "Alien_Files_mission_USSR_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_00.png)
+
+Several secret missions were deployed by Stalin to South and Central America after two Generals found a book that belonged to Czar Nichoals II's wife (Czarina Alexandra) and Grigori Rasputin,that had a map showing the location of alien bases.That map was later used in the school system,minus the base locations.
+
+![Screenshot of "Alien_Files_mission_USSR_9"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_9.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_mission_USSR_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_01.png)
+
+The Philadelphia Experiment of 1943 did happen and it was successful after it was successful after the 3th attempt...futher attempts failed.
+
+![Screenshot of "Alien_Files_The_Philadelphia_Experiment_1943"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Philadelphia_Experiment_1943.png)
+
+Contrary to belief the experiment resulted from Albert Einstein's discovery of a manuscript (along with 1 metalic object) found in a cave system and brought to Spain by Columbus on his last voyage.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_manuscript_Columbus"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_manuscript_Columbus.png)
+
+The manuscript found by Columbus contained extremely technologically advanced schematic drawings and information and it was used to develop the unified thory by Einstein,where he described mathematically and physically the interrelated nature of the forces that comprise electromagentic radiation and gravity.Einstein had Illumination connections.
+
+![Screenshot of "Alien_Files_the_manuscript_symbol_Columbus"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_manuscript_symbol_Columbus.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_00.png)
 
