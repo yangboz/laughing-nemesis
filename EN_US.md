@@ -1950,3 +1950,54 @@ NOTE from myself and Petro:the information above was added (had written) to the 
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
+In the so called Area-51 there are members (number unkown) of 4 different races forcibly cooperating with Humans and Reptilians.
+
+As far as we know none of those members are either high-ranking or have a significant importance in their fields of expertise.
+
+The Maitre and Humans conduct security services and support to the base 24/7.
+
+![Screenshot of "Alien_Files_base_of_51Area"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_51Area.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_base_of_Moon_INDUGUTK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_INDUGUTK.png)
+
+There's more than 1 race conducting operations on the Moon...The main race  in the Moon are the INDUGUTK(aka "Tall White").
+
+The MYTHILAE also have at least 1 base (surface) on what we call "the dark side" of Earth's satellite.
+
+Many of the INDUGUTK human abductees are there...they end up either as slaves for mining (underground) or as what they call "John's" and "Mary's"...but their "official" name is:"students-M".
+
+The "students-M" are abductees that reveal a higher level of intelligence and are willing participants(or become that)in their agenda and plans.
+
+It is estimated that 4 in each 10 abductees become "students-M".The rest(60%) become slaves.Some of those slaves go on to work on other plants.
+
+The "students-M",after "training"(and whatever else).return to Earth to assume leadership roles in Human society.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+HOW MOST ALIEN BASE ON THE MOON ARE BUILD
+
+![Screenshot of "Alien_Files_base_of_Moon_underground"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_underground.png)
+
+AND HOW SOME LOOK FROM ABOVE
+
+![Screenshot of "Alien_Files_base_of_Moon_above"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_above.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_abduction_implants_in_APIS-RUSSIA_AGENT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_abduction_implants_in_APIS-RUSSIA_AGENT.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians-RUSSIA_AGENT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians.png)
+
+THE DAY HUMANS KILLED REPTILIANS
