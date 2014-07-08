@@ -25,3 +25,5 @@ iOS App refs
 ================
 
 http://ogleearth.com/2007/12/google-sky-api-early-usage-examples/
+
+http://www.skymaponline.net/ConstellationList.aspx
