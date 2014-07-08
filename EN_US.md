@@ -1701,3 +1701,149 @@ The manuscript found by Columbus contained extremely technologically advanced sc
 
 ![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_00.png)
 
+In 1933,near Vergiate Italy,an alien ship belonging to the race KALENIA crashed killing all its occupants.Inside many ancient Italien artifacts were found.(and alien ones)Benito Mussolini created a secret group to look at that incident and any other future ones related to alien races.That group still exists and it called GIO-1.And the artifacts found on the wreck were put in a museum and passed as if found at an archeological escavation.In the 1950 another ship crashed at the same location.
+
+![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_01.png) ![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1950_USA_President(D.Eisenhower)_and_BritishPM(WinstonChurchill)"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1950_USA_President(D.Eisenhower)_and_BritishPM(WinstonChurchill).png)
+
+During the early 1950's USA president D.Eisenhower and British PM Winston Churchill met several times to discuss the best ways to keep the alien presence on Earth away from the general public and from prying eyes.
+
+Together they created a stop secret task-force called "SILK".This task-force was so secretive that its leader was an Air Force General from english desent that belong to the military of Uruguary.
+
+Side by side with this General worked 2 USA and 2 English Secret Services agents.
+
+They were not allowed to write anything they investigated.All events and investigative progress wereh only reported face-to-face to both Churchill and/or Eisenhower.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_700AD_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_700AD_battles.png)
+
+From the 700 AD to the 19th century AD over 50 battles between alien races were fought on Earth's skies and witnessed by thousands of people.Many artists painted and carved these events,but the Catholic church searched,found and destoryed most of them.In the 20th century only less than 10 are available.
+
+![Screenshot of "Alien_Files_18thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_18thCentury_battles.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_Conver_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
+
+"As long as there are stars,there will be war" Race Maitre
+
+![Screenshot of "Alien_Files_19thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_19thCentury_battles.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1608_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1608_battles.png)
+
+August 1608:from Marseille and Nice(France) all the way to Genova(Italy) alien ships stop by the sea shore and crew memebers work on the vehicles openly for everyone to see.The Painting show 3 alien ships in Nice.(Note:this is original illustration.In the 1970's a magazine purposely inproved its quality in order to make it look contemporary and be able to debunk the event)
+
+Real witness of the event wrote the next day:
+
+"The inhabitants saw three strange luminous vessels which evolved at high speed above the city.The three machines stopped near the fortress and went down above the water where they caused the water boil and emit a red-orange vapor.To the great stupor to of the numberous witnesss,two humaniod beings with large heads an large luminous eyes,dressed in a red suit with silver scales,connected to the flying machine by tubes,engaged themselves in several hours of strange work."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1608_battles_report"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1608_battles_report.png)
+
+This is the original report from the alien event of August-1608 in Marseille,Nice and Genova.
+
+During your investigations in our territories of aboard you will ofen find misleading area/or falsified information concerning sightings and/or alien contact...this misleading and/or falsified information will concern mainly dates,places,witnesses,time and weathr conditions as the time of the event.
+This pattern of deception is common and has been practied for centuries either by religious organizations,secret sects,privately owned media and infiltrated Human governments.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_commemorative_coins"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_commemorative_coins.png)
+
+Images 1,2 and 3 show commemorative coins (no transaction value)from 3 different families.They depict 3 ships from 2 alien races.A western magazine tried to debunk these by stating that they "simply represented each family's shields".Further research proved that:
+
+1-the images did not match any of the family's shields.
+
+2-two different families would never use the same pattern.
+
+3-the images do not math any shield of the era.
+
+4-the images match well known and reported alien ships.
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CCTV_NewYork_USA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CCTV_NewYork_USA.png)
+
+CCTV NEW YORK CITY,USA
+
+![Screenshot of "Alien_Files_Pre-historic_cave_pantings_south_of_France"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Pre-historic_cave_pantings_south_of_France.png)
+
+Pre-historic cave paintings in the south of Frances.The same ships can be found on wall cave paintings in Spain.
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Pre-historic_cave_pantings_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Pre-historic_cave_pantings_01.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_base_of_KapushtinYar_Astrakhan_Volgograd"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_KapushtinYar_Astrakhan_Volgograd.png)
+
+Recovered alien ships in the base of Kapushtin Yar,Astrakan,Volgograd.3 seemed abandoned,2 result of crashes.
+
+![Screenshot of "Alien_Files_monitoring_Plasetsk_missile"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_monitoring_Plasetsk_missile.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The following are prints that were stolen in Sweden from APIS-USSR(Alien Presence Intelligence Services)by APIS-USA in conjuction with another foreign "special services".6 month later these print were(unkown reason)attributed to an american civilian as an "invention" and later as a "fake".These prints were (1 year later)copyrighted by a unknown "person".All the most technologically important prints were never found nor released/revealed.The scientific data on these prints was changed.Also,many faked illustrations were added to the original documents...the originals (stolen) had only 3 pages and the faked "copyrighted" one had over 20 pages.These are the original prints.
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_00.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_04.png)
+
+![Screenshot of "Alien_Files_AKART_ship_crashed"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_AKART_ship_crashed.png)
+
+Photo (top) of AKART ship that crashed in Klisura,Bulgaria in 1971.
+
+Left and bottom the USSR's(failed) attempt(from now)at recreating an alien ship.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
