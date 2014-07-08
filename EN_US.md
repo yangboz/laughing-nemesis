@@ -1818,25 +1818,25 @@ The following are prints that were stolen in Sweden from APIS-USSR(Alien Presenc
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Files_stolen_APIS-USSR_print_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_01.png)
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_01.png)
 
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Files_stolen_APIS-USSR_print_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_02.png)
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_02.png)
 
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Files_stolen_APIS-USSR_print_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_03.png)
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_03.png)
 
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Files_stolen_APIS-USSR_print_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-Alien_Files_stolen_APIS-USSR_print_04.png)
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_04.png)
 
 ![Screenshot of "Alien_Files_AKART_ship_crashed"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_AKART_ship_crashed.png)
 
@@ -1890,5 +1890,63 @@ We stil have a very limited knowledge of the activites occuring in the Bermuda T
 
 From alien reports we do know this:
 
-1-
+1-Abductions do occur in this area.
+
+2-Experimentations with Humans do occur in those areas.
+
+3-There is a "multi-dimensional space portal" that goes to and from the "Triangle"(not exactly inside the area known as the "triangle").
+
+4-There is a race that is planning on building/creating a new base in the "Triangle" in the year 2021(rumors say its the JIGHANTIK).
+
+5-It is the most important underwater region on Earth to those alien races.
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_base_report"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_base_report.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+These are some of the ship that were taken with the sole purpose (confirmed by 3rd party alien race) of abducting humans:
+
+-"Pickering" 1800(90 people),"Wasp" 1814(140),"Grampus"1843(48),"Atlanta" 1880 (290),"Raifuku Maru" 1924(?),"Stavenger"1931(43).
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_base_report_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_base_report_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The crash of a Solipsi Rai ship in Roswell(USA) in July 7,1947 has been one of the most secretive APIS-USA case.Despite our best efforts we were never able to recover any evidence except for the top-secret photos on anex-3352-B.
+
+![Screenshot of "Alien_Files_Rosewell_anex_3352_B"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Rosewell_anex_3352_B.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Our agents estimate that near 65% of all aliens and UFO related websites on the internet(worldwide) are government (or government-linked) owned and ran.
+
+In the case of USA-only websites that number jumps to 83% and in Europe to 70%.
+
+In the USA 35% of those websites are ran by the USA,30% by the CIA,15% by the military,10% by APIS-USA,5% by the FBI and the rest by unkown government agencies.
+
+In Russia that number is around 33%.
+
+In China that number is around 95%.
+
+In Japan that number is around 70%.
+
+In Australia that number is around 25%.
+
+In India that number is around 55%.
+
+In Brazil that number is around 80%.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+NOTE from myself and Petro:the information above was added (had written) to the book in 2007.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
