@@ -1847,3 +1847,48 @@ Left and bottom the USSR's(failed) attempt(from now)at recreating an alien ship.
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+We know that there are at least 2500 alien races...that number is likely to be much higher.
+
+One race (a crew member of the MAZAREK ship that crashed near Yekatrinburg,now Sverdlovsky)said that there are a few races that do not come to Earth because they know that the Reptilians and the Maitre are there...
+
+Some of those races that avoid Earth are as violent(if not more) as the Maitre...others are peaceful.
+
+So,having the Reptilians and the Maitre on Earth it is not always a bad thing...it keeps even worst races away.
+
+The balance is "found" by having the "Council of 5"protecting us.
+
+The MAZAREK crew member said the following:
+
+"There are many more races that would like to protect Human but they are not willing to start a war against Reptilians or Maitre over you..."
+
+![Screenshot of "Alien_Files_crew_of_MAZAREK_ship"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_crew_of_MAZAREK_ship.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+In the area known as the Bermuda Triangle there have been 2 permanent underwater bases for thousands of years.
+
+The first one was estabished by the MATRAX around 3.000 years ago while the second one has been there for over 6.000 years...race unknown.
+
+Several other races had bases there (or near)but have abandoned them.
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_abandoned_base"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_abandoned_base.png)
+
+This photo shows the ruins of an abandoned base...
+
+APIS-USA used their influence in the media to propagate the rumor that it was a sank submarine.Later APIS-USA created a CGI video about it.
+
+Remember:we cooperated with other APIS but we do not trust them or share information that is deemed confidential or top-secret.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+We stil have a very limited knowledge of the activites occuring in the Bermuda Triangle area.
+
+From alien reports we do know this:
+
+1-
+
