@@ -70,74 +70,74 @@ THE ALIEN RACES BOOK
 
 In 2004 I became friends with an Ukrainian guy called Petro that I met completely randomly at a bar by the beach...I was on holidays and he was there with some friends having some drinks.
 
-2004年的时候我交了一位乌克兰朋友名叫Petro,我在一个沙滩酒吧完全随机的遇到的...那时候我在度假而他在那和一些朋友一起喝酒.
+在2004年的时候，我在沙滩酒吧里偶然地认识了来自乌克兰的Petro,当时我正在度假，而他正与朋友一起喝酒.
 
 Anyway,we started talking with each other...our friendship started like that...he became a regular at my house where our families would get together.
 
-不管总么说,我俩开始相互交谈...我俩的友谊就像那样的开始了...他成为了我家庭聚会的常客了.
+于是，我们开始闲聊...我们俩就这样成为了朋友...到后来，他也就成了我的家庭聚会中的常客了.
 
 In 2008 he called me and asked me if I wanted to go on a road trip...I said "SURE!"
 
-2008年的时候他给我电话邀请我是否能和他一起旅行...我说"当然!"
+2008年的时候，他给我打电话并问我能否和他一起去旅行...我欣然答应了他。
 
 He had in mind to go to the south of Spain and visit his brother(his brother was there in jail at the time,near Huelva...) and also to visit his father in Portugal (his father was a former diplomat of the Ukraine, years before, and where he retired he decided to move to Portugal and live there...)
 
-他想着去西班牙的南部去拜访他的兄弟(他兄弟那时候还在监狱,靠近韦尔瓦...)一并去拜访在葡萄牙的他的父亲(他的父亲之前是驻乌克兰外交官,很多年前,然后他退休决定住在葡萄牙...)
+他打算前往西班牙的南部拜访他的兄长(他的兄长当时在靠近韦尔瓦的监狱坐牢...)随后再去葡萄牙拜访他的父亲(他的父亲在很多年前是驻乌克兰的外交官,退休之后留在了葡萄牙生活...)
 
 And so we went...we visited his brother and then went to Portugal to visit his father...
 
-然后我们到了那...我们拜访了他的兄弟之后再拜访他的父亲...
+就这样，我们开始了旅程，先后拜访了他的兄长和父亲...
 
 When we were at his house he asked us a favor(he is old)... if we could empty boxes from one of the rooms,as he wanted to make it into a bedroom for guests...
 
-当我们到达他父亲的房子那,他父亲要我们帮他一个忙(他年迈)...让我们帮他清空他一房间里面的盒子,他想腾出地方来作为客房...
+当我们到达他父亲的家里时,他年迈的父亲让我们帮他清空某个房间里面的盒子,他想腾出地方来作为客房...
 
 We said "OK" and went to the room,excepting to see some old newspapers...
 
-我们爽朗的答应了之后到那个房间,期待见到一些旧报纸...
+我们爽快地答应了并走入房间,以为能够见到很多关于过去的旧报纸...
 
 Instead we found about 58 boxes full of old documents and books from the time when he was a diplomat...
 
-反而我们发现的是58个装满了旧文档和书籍盒子，来自他当时还是外交官的年代...
+然而我们发现，房间里面的58个盒子都装满了他当外交官时期的旧文档和旧书籍...
 
 Some papers(documents) were in Russian... some were even from the USSR times.
 
-一些文案(文档)是俄文...一些甚至来自苏联时代.
+在这些旧文档里面，有些是俄文，有些甚至来自苏联时代.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 
 Petro started reading/translating some of them and we realized that there was a lot of interesting,intriguing and even top-secert (at least at one time) documents!
 
-Petro开始一边阅读一边翻译这些，而我意识到这是一些非常有意思，激发兴趣甚至极其机密的(至少在某一段时间)文档!
+Petro一边阅读一边翻译，而我却意识到这些都是非常有意思、能激发兴趣，甚至是极其机密的(至少在某一段时间)文档!
 
 So we ask his father if we could keep this boxes for ourselves...he agreed and...we have to rent a van to take everything back to home with us.
 
-因此我们问他父亲我们是否能够保留这些盒子给自己...他同意了...我们就租赁了一个箱型客车来保存我们所有的这屋子中的一切.
+因此，我们问他父亲我们是否能够自己保留下这些盒子...他同意了...我们就租了一个箱型客车来装运回家.
 
 Week after week,in our house but mainly on the weekends,we went through all of the documents,translating them,cataloguing them by subject matter,or dates and places,etc...
 
-一周又一周,在我们屋子里但是主要都是在周末,我们经历过了所有的文档,翻译,按主旨分类,或者日期和地点,等等...
+很长一段时间,大部分的周末我们都呆在房子里面翻看所有的文档,并翻译出来,按主旨、日期或地点等分类...
 
 As,due to work,we were apart quite offen,we also did a lot of work on line.
 
-同时,由于工作,我们经常分开,我们也经常在网络上一起完成相关工作.
+同时,由于工作的原因,我们经常分开,但我们也经常在网络上一起完成相关工作.
 
 That's when we found THE BOOK...the book that lead to the videos I publised...(this one book that we has is undated and looks "modern",but we did find the cover -only the cover- for the same book but dating back to 1951!)
 
-这就是当我们找到*这本书*的时候...这本书导致我发布的一些视频...(就这本书我们让它无定期看起来现代时髦,但是我们找到封面-仅仅只有封面-是为了同一本书但是时间回到了1951年!)
+这就是当我们找到这本书的时候...这本书导致我发布的一些视频...(就这本书我们让它无定期看起来现代时髦,但是我们找到封面-仅仅只有封面-是为了同一本书但是时间回到了1951年!)
 
 We called his father later that year and asked him about the book...and he filled in the missing information...he said that amongst high ranking political officals there had always been the rumor of alien contact,but nothing concrete...
 
-我们这之后一年给他父亲电话关于这本书...他父亲填充了一些丢失的信息...他说到在高阶级政治官员他们经常有一些外星人接触的传闻,但是抓不到具体的证明...
+我们之后给他父亲打电话咨询关于这本书...他父亲给我们补充了一些丢失的信息...他说，在高阶级政治官员口中经常听到一些与外星人接触的传闻,但是却没有什么具体的证明...
 
 He said that he had received the book years before from one of his life-long diplomat friends and had been updating the book until recently with information that friends of his sent him,or when they would get together to talk about "old times".
 
-他说到多年前收到这书是从他的一辈子的外交官朋友那而且这书一直在更新从他朋友那发过来的，或者当时他们在一起谈论的"青春时光".
+他说这本书是多年前从他最好的外交官朋友那得到的，而且这书一直在他朋友那更新发过来，或者当时他们在一起谈论的"青春时光".
 
 That information(regular updates)was sent to him by mail,phone or online.
 
-那些信息(正常更新的)通过他发邮件或者在线电话传过来.
+那些信息(正常更新的)通过发邮件或者在线电话传过来.
 
 He still gets regular updates that transmits to me.
 
@@ -147,55 +147,55 @@ He still gets regular updates that transmits to me.
 
 The book has hundreds of side-notes on the pages(updates),small papers with related miscellaneous info attached to pages,photos stapled to them,etc...that is how we found out about relatively recent visits from aliens,their numbers,where it happened,etc...they had been updating the information they could get regularly.
 
-这本书有非常多的页面笔记作为(更新),小的页面有一些旁杂的附属信息,夹订一些相关图片,等等...这就是我们发现的相关的最近有关外星人访问，数量，什么时候发生的，等等...他们正常获得后再更新这些信息。
+这本书有非常多的页面笔记作为(更新),小的页面有一些旁杂的附属信息,夹订一些相关图片,等等...这就是我们发现的有关外星人访问，数量，什么时候发生的等等...他们正常获得后再更新这些信息。
 
 BUT he also said that there were only a handful of people that were in the "know" back then(USSR days)...the leader of the communist party and a couple of advisers,5 or 6 SMERSH agents(maybe more,up to 12),the commander of the armed forces AND the commander of the 3 armed forces branches(army,air-force and navy) and maybe a couple of scientists...
 
-*但是*他也说到在这之背后少数"知情的"认识在支持他们(苏联时代)...社会主义领导人和一些咨询顾问,5,6个 (俄语)间谍之死--谋杀政敌的前苏维埃组织 成员(或者更多，到12个),陆军司令和三军统帅(陆，空，海) 和一些可能的科学家...
+但他同时表示，当时（苏联时代）只有极少数知情者支持他们......共产主义领导人和一些咨询顾问，大概5、6个谋杀政敌前苏维埃组织成员的间谍（也许更多，到12个），陆军司令和三军统帅（陆军，空军和海军），也许还有一些科学家......
 
 He said that most likely there were more people in the know,specially in the militray,but he could't confirm that!(him and his friends did not recognize some of the names mentioned on the book)
 
-他说到大概像这些已知的人群，特别在军队，但是他不能确认这些！(他和他朋友不能认出一些在盒子中提到的人名).
+他大概能说出像这样一些已知的人群，但是在军队里面的信息，他并不能完全确认！(一些在书中提到的人名他和他的朋友都不认识).
 
 People have asked me about some of the illustrations of certain Alien Races on the book...this because some of them were literally copied off movies and/or video games(or not).
 
-人们有问过我一些在这本书中外星人种族的抽象画...这些是英文数中的图片被文学式的抄袭到电影和或者电子游戏中(或者没有).
+人们有问过我一些在这本书中外星人种族的抽象画...这些是英文数中的图片被文学式的抄袭到电影和或者电子游戏中.
 
 Me and Petro asked ourselves the same thing,as we recognized some of them...and we did contact his father in order to get an answer.
 
-我和Petro也相互问同样的问题,当我们认出他们中的一些人来...我们就联系他的父亲为的是得到一个答案.
+我和Petro心里都有一个共识,当我们认出他们中的一些人来的时候...我们就联系他的父亲以便得到答案.
 
 He told us that over the years the people that were adding/updating/printing the book has been using alien images from the media when they did not have a real photo or drawing from the witnesses...
 
-他给我们道来，经过这么多年人们增加／更新／打印书中用到的从媒体中来的外星人图片，当时他们也没有真实的照片或者从见证者描述过来的素绘...
+他告诉我们，经过这么多年来人们增加、更新、打印书中用到的那些从媒体中下载来的外星人图片，当时他们也没有真实的照片或者从见证者那描述过来的素绘...
 
 So sometimes they used images from movies and video games that better discribed the Alien Races in question...this according to the witnesses testmonies(description of their encounters).
 
-因此有时候他们用到的从电影或者电子游戏中过来的图片能更好的描述问题中的外星人种族...这些从目击者证据(目击人描述过来的).
+从目击者证据（目击人描述）中得知，有时候他们用从电影或者电子游戏中下载来的图片能更好的描述问题中的外星人种族...
 
 However he did say something else...something extremely interesting.
 
-然而也说了一些其它的...一起极其有意思的.
+然而也说了一些其它的...一些极其有意思的.
 
 He told us that amongst high-ranking diplomats there has been much "solid" discussion and debate about "a plan" involving centain media (from online to paper to hollywood to the video game industry)and centain security departments (specially from Japen,China,Canada,USA and Europe) in order to use the "right"(to them)images to describe the appearance of aliens...
 
-他告诉我们这些高职位的外交官们有过太多的"可靠的"讨论和辩论关于"一个计划"涉及一些媒体(从网络到报纸到好莱坞到电子游戏行业)和一些安全部门(特别是日本，中国，加拿大，美国和欧洲)为的是行使这个"正确的"(对他们来说)图片去描述外星人的外观...
+他告诉我们，这些高职位的外交官们有过太多的"可靠的"讨论和辩论关于"一个计划"涉及一些媒体(来自网络到报纸、好莱坞、电子游戏行业)和一些安全部门(特别是日本，中国，加拿大，美国和欧洲)为的是使用这个"正确的"(对他们来说)图片去描述外星人的外观...
 
 All the media involved was (in the end...either directly or because they owned the "mother" companies)owned for no more than 5 people...and that this was a concerted effort in order to get people(human-kind)used to the appearance and presence of alians...amongst us!
 
-所有涉及的媒体(最终...要不直接或者因为拥有他们“母"公司的)拥有者不超过5个人...因此这是一个协商好的影响效果为得是让人们(人类)适应于外星人的出现和外表...在我们中间!
+所有涉及的媒体(最终直接属于他们“母"公司的)拥有者不超过5个人...因此这是一个协商好的影响效果，为得是让人们(人类)适应于外星人的出现和外表！
 
 He(Petro's father)also told us that some of the alien races images used in video games(and other media)were used in the book PRIOR to the release of the game and/or movies...
 
-他(Petro的父亲)也给我们说到一些外星人种族的图片被用在了一些电子游戏中(或者其它媒体)，这本书中用到的早于这些游戏和或电影发布...
+他(Petro的父亲)也给我们说到一些外星人种族的图片被用在了一些电子游戏中(或者其它媒体)，这本书中用到的图片都早于这些游戏和电影发布...
 
 Him and some of his friends had knowledge that some of those security departments had actually created some of the images and then "released" to the proper channels...in order for those images to be known to the general public.
 
-他和他的一些朋友知道这些安全部门已经实际上创建了一些图片然后再“流出”到一些可能的渠道...为的是让这些图片被广泛大众所知.
+他和他的朋友知道某些安全部门实际上已经创作了一些图片然后再通过某些可能的渠道“流出”...为的是让这些图片被广泛大众所知.
 
 This,obviously,we could not confirm...except for one of images on the book...the aliens used in the movie "Independence day" were known before the making (not even close) of the movie...by at least 8 years!
 
-这些,很显然,我们不能确认...除了书中的一张照片...在电影"独立日"中用到的外星人照片，在我们知道的开始制作(不太确切)这部电影的时候...截止至少8年!
+这些,很显然我们都不能确认...除了书中的一张照片...在电影"独立日"中用到的外星人照片，在我们开始制作(不太确切)这部电影的时候...截止至少8年!
 
 Also,some of the photos on the ARB,had been tampered with...
 
@@ -209,23 +209,23 @@ And so,there you have it...the "story" behind the ALIEN RACES RUSSIAN SECERT BOO
 
 At least some of it...
 
-至少一些是其中的部分...
+至少有一些是其中的部分...
 
 I hope you enjoy the book and all the revelations contained in it.
 
-我希望你愉快阅读此书以及书中所有相关的内容.
+我希望你能愉快阅读此书以及书中所有相关的内容.
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 this book is dedicated to the memory of PETRO
 
-此书献给PETRO的美好回忆.
+此书献给PETRO以作留念.
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 The ARB book has been re-editd(information always being updated in all aspects,from new alien races to new reports and photos or illustrations) at least 12 times. That we know the first edition was printed in 1946 or early 1947.Then new editions were printed:1951(Ihave the cover,just the cover,of that one),1959,1968,1971,1980...all the way to (we believe)2011.
 
-此ARB书被重新编辑过(信息经常被更新包括所有方面,从新的外星人种族到新的报道和照片或者素绘)至少12次.我们知道的第一版本印刷是在1946年或者1947年之前.然后新的版本在1951年(我有封面,就只有封面,此版本的),1959,1968,1971,1980...所有的方式到(我们确信)2011.
+此ARB书被重新编辑过(信息经常被更新包括所有方面,从新的外星人种族到新的报道和照片或者素绘)至少12次.我们知道的第一版本印刷时间是在1946年或1947年之间.然后新的版本有1951年(我有封面,就只有此版本的封面),1959,1968,1971,1980...我们确信一直到2011.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -237,19 +237,19 @@ THE LOST COPY
 
 In the 1980's a copy of (edition) of this book was found on a field in Buryatia (east Siberia).
 
-在1980年代一份此书(编辑版)的复印在布里亚特(东 西伯利亚)的战场上被找到.
+在1980年，有一份此书(编辑版)的复印在布里亚特(东西伯利亚)的战场上被找到.
 
 Thay copy ended up in the hands of a KGB agent with friends in the media.
 
-那份拷贝终止在一个媒体中朋友之一的克格勃特工手中.
+那份拷贝最后落入一位身份是克格勃特工的媒体朋友手中.
 
 After the collapse of the USSR some of the information (and images) in the book were leaked (sold?).
 
-苏联解体之后一些信息(和图片)在这书中的被泄漏了(卖了?).
+苏联解体之后，这本书里面的一些信息(图片)就被泄漏了(卖了?).
 
 Years later the information and some of the images started apprearing in TV series and video games.
 
-多年后这些信息和一些图片开始出现在电视连续剧和电子游戏中.
+多年后这些信息和图片开始出现在电视连续剧和电子游戏中.
 
 "Mass effect" being the most well known...
 
@@ -257,41 +257,41 @@ Years later the information and some of the images started apprearing in TV seri
 
 (this information was handwritten on the book)
 
-(这些信息是在书中手写的)
+(这些信息是书中手写部分)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 In 1924,near Yekaterinoslav,Ukraine (now Dnipropetrovsk) the 3 daughters of a certain Captain Andriychuk simply vanished.
 
-1924年,靠近Yekaterinoslav,乌克兰(现在Dnipropetrovsk)一个已确认的Andriychuk队长的三个女儿简单的凭空消失了.
+1924年,在靠近乌克兰叶卡捷琳诺斯拉夫(现在第聂伯罗彼得罗夫斯克)的地方，一位名叫安德烈丘克队长的三个女儿毫无预兆地凭空消失了.
 
 ![Screenshot of "LOCATION_Dnipropetrovsk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
 
 ![Screenshot of "Captain_Andriychuk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Captain_Andriychuk.jpg) Captain Andriychuk was of Russian descent and very little is known about him,except that he travelled a lot.
 
-Andriychuk是苏联家氏而且对他知之甚少,除了他到处旅行点很多.
+我们只知道安德烈丘克队长是苏联家氏中的一员，对他本人知之甚少,除了知道他到过很多地方旅游.
 
 A farmer that lived near Captain Andriychuk's house said that he saw the Captain's daughters walking towards the woods maybe 2 hours before sunrise.
 
-住在Andriychuk队长房子附近点农民提到，他看到队长的女儿们径直走到树林大约在日出前2个小时.
+住在安德烈丘克队长家附近的农夫提到，大约在日出前2个小时，他曾经看到队长的女儿们径直走入树林.
 
 Intrigued,he followed them at a distance.After walking for 30 minutes he described seeing "purple and red lights and mist" through the trees.
 
-出于好奇心,他保持一段距离跟随她们.走了30分钟之后,他描述到所看到的"紫色和红色和迷雾"弥漫在树木之间.
+农夫出于好奇心,在她们身后保持一段距离并跟随她们走了30分钟之后,他描述他所看到的"紫色和红色和迷雾"弥漫在树木之中.
 
 He got closer and saw the 3 girls entering what he called "a floating bright windmill-like plane"...he also reported seeing 5 creatures as small as the children but with a "much old face".
 
-他走得更近了，看到这3个女孩走进了他所谓的"一个漂浮的闪亮的风车似的飞机"...他同时也报道看到5个生物像小孩一样小但是拥有一张"够老的面孔".
+他越走越近，看到这3个女孩走进了一个他所谓的"漂浮的闪亮的风车似的飞机"里...同时他还说看到5个小孩体型，但是长着一张“苍老面孔”的生物。
 
 According to him the "windmill" then flew very slowly "into the stars" until he could not tell them apart.
 
-透过他的"风车"一会缓慢的飞离"至群星"直至他不能和她们告别.
+利用他的"风车"缓慢地向"至群星"飞去，直至他看不见.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 According to the farmer,he ran to Captain Andriychuk's house to warn him about the event.
 
-通过这个农夫,他跑向Andriychuk队长的房子去警告他刚才这个事件.
+农夫马上向安德烈丘克队长的家跑去并告诉他刚才所见的一切.
 
 ![Screenshot of "Suppose_farmer's_home"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_farmer's_home.jpg) This photo supposedlly shows the farmer's house.
 
@@ -299,11 +299,11 @@ According to the farmer,he ran to Captain Andriychuk's house to warn him about t
 
 Upon arriving he knocked on the door but nobody answered...
 
-接着当他到门口敲门的时候但是无人应答...
+当他跑到门口敲门的时候但是无人应答...
 
 He then entered the house and found the Captain and his wife dead on their bed...their faces "were peaceful",as if they had died during their sleep.
 
-然后他直接进入房间，他发现队长和他的妻子死在了他们的床上...他们的面部"平静",就像他们在睡梦中逝去.
+然后他直接进入房间，他发现队长和他的妻子已经在他们的睡床上死去...他们的脸上很"平静",就像他们在睡梦中逝去一般.
 
 All their animals(3 dogs,1 horse and 2 goats) were dead as well.
 
@@ -311,7 +311,7 @@ All their animals(3 dogs,1 horse and 2 goats) were dead as well.
 
 On the kitchen table there was a letter or note(not signed) with the handwriting that matched Sofiya, one of the daughters.
 
-在厨房的桌子上有一封信或者是留言(未署名)手写的和Sofiya字迹一致,女儿之一.
+在厨房的桌子上有一封未署名的手写信，信的字迹和三个女儿之一的索菲亚字迹一致.
 
 It said:
 
@@ -319,11 +319,11 @@ It said:
 
 "We are going to the school in the moon,with our friends..."
 
-"我们去月亮上的学校了,和我们的朋友..."
+"我们要和朋友们去月亮上学了..."
 
 ![Screenshot of "Suppose_photo_of_Sofiya"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
 
-假想Sofiya的照片(待确认)
+假设这是索菲亚的照片(待确认)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -333,31 +333,31 @@ TO:
 
 SMERSH Agents Department IV-A1/12
 
- (俄语)间谍之死--谋杀政敌的前苏维埃组织探员部门 IV-A1/12
+(俄语)间谍之死--谋杀政敌的前苏维埃组织探员部门 IV-A1/12
 
 It is your duty to thoroughly investigate all events regarding any reports of visitations or incidents concerning creatures from other planet as well as with non-terrestrial creatures that dwell on our planet at the present or feature time.
 
-你的职责是经过调研所有事件有关所有报道关于访问或者事件关于来自其它星球的或者非地球生物居住在我们地球至今或者将来.
+你必须调查所有有关此事--现在或将来有其他星球或者非地球生物居住的地球的报道、相关访问和事件。
 
 It is your duty to immediatly present to your Superior in charge(KL-44) any material evidence gathered during your investigations.
 
-你的职责是立即呈现给你的汇报上级(KL-44)前,任何收集的物证材料经过你的调查后.
+你必须把任何收集到的物证材料在经过调查后立刻呈现汇报给你的上级.
 
 It is your duty to keep absolute secrecy and concealment regarding your findings and conclusions during your invistigations except from your Superior in charge (KL-44).
 
-你的职责是保证绝对的保密和隐秘这些你在寻找和汇总的在你的调查中,除了你的直属负责上级(KL-44).
+你必须保证你在寻找和汇总后得出的调查，除了你的指数负责上级，对于其他人是绝对保密的.
 
 It is your duty to immediatly destory this book incase your physical being or personal safety is threadtened.
 
-你的职责是立即毁坏这本书以防你的身体或者个人安全受到了威胁.
+你必须立即销毁此书以防你的个人安全受到威胁.
 
 The loss of this book while in your possession will result in serious consequences for your 2 SMERSH companion Agents as well as for your immediate relatives.
 
-丢失这本你拥有的书直接导致的严重后果至你的2个直接关联的SMERSH同伴.
+你手中这本书，如果丢失了，同属于SMERSH组织的你的直接上级、上上级都会受到严重牵连。
 
 Make use of your extensive trainning and love for our great Union.
 
-确保使用上你的广泛训练和博爱忠于我们伟大的联盟.
+确保发挥你的专业技能和博爱精神并忠于我们伟大的联盟.
 
 ![Screenshot of "Chief_Marshal_"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Chief_Marshal_.jpg) Chief Marshal Konstantin A. Vershinin 1947
 
@@ -369,7 +369,7 @@ Make use of your extensive trainning and love for our great Union.
 
 The book of alien races is both an instructions manual and a source of information to be used now and in the feature until the day it will be needed no more.Learn from it and added to it.
 
-外星人种族之书既是教学手册也是信息之源至今已用的和未来直到某天不再需要了.从中学些它并添加丰富吧!
+不管是至今已用还是将来某天不再需要，外星人种族之书既是教学手册也是信息之源，从中学些并丰富这方面的知识吧!
 
 When with Humans:
 
@@ -385,7 +385,7 @@ When with Humans:
 
 3 - Gather physical evidence
 
-3 - 收集物证据
+3 - 收集证据
 
 When with Aliens:
 
@@ -411,13 +411,13 @@ YOUR ARE FORBIDDEN OF:
 
 SHOWING THIS BOOK TO ANYONE,TALKING ABOUT THIS BOOK TO ANYONE,TALKING ABOUT OR REVEALING YOUR INVISTIGATIVE ACTIVITIES TO ANYONE,DRINKING ALCOHOL ON AND OFF DUTY,CONSUMING DRUGS AND ON OFF DUTY,HELPING ALIEN RACES NO MATTER THE SITUATION OR REQUEST,CHOOSING "SIDES" WHEN PHYSICALLY AMONGST DIFFERENT ALIEN RACES OR DURING INVISTIGATIONS,AND OF ENGAGING IN SEXUAL ACTIVITIES WITH ANY MEMBERS OF ANY ALIEN RACE.
 
-把这本书展示给任何人,谈论这本书和任何人,谈论或者呈现你的调查活动给任何人,喝酒不工作,工作不喝酒,吸毒不工作,工作不吸毒,帮助外星人不管任何苦难或任意请求,选择"一方"在不同的外星种族中或者在调查的时候,同时不能参与性方面的活动和任何任意外星人种族成员.
+把这本书和你的调查内容展示给任何人,随意与人谈论此书,保证在工作过程中不涉及酒精和毒品,帮助外星人不管任何苦难或任意请求,选择"一方"在不同的外星种族中或者在调查的时候,同时不能参与性方面的活动和任何任意外星人种族成员.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 THE ALIEN RACES
 
-外星人种族们
+外星人种族
 
 ![Screenshot of "Alien_Race_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_cover.jpg)
 
@@ -429,7 +429,7 @@ THE ALIEN RACES
 
 ALLGRUULK(aka "the builders")
 
-ALLGRUULK(也就是"构建师")
+ALLGRUULK(即"构建师")
 
 They come from constellation Sculptor.
 
@@ -437,23 +437,23 @@ They come from constellation Sculptor.
 
 The derive from an ancient race of reptilians that has gone extinct.
 
-他们继承于已经灭绝的远古爬虫种族.
+他们继承已经灭绝了的远古爬虫种族的血脉.
 
 They are specialist at building ships and other devices needed for deep space travelling.
 
-他们擅长于建造飞船和其它驱动设备用于深度太空旅行.
+他们擅长于建造飞船和其它用于深度太空旅行的驱动设备.
 
 They are also space-travellers themselves,searching for new raw materials.
 
-他们本身也是太空旅行,为了寻找新得原始矿产.
+他们本身也是为了寻找新的原始矿产而在太空旅行.
 
 They can live up to 230 years.
 
-他们能活到230岁.
+并且，他们能活到230岁.
 
 Last seen near Tokoyo(Japen) in 2005.
 
-最后目睹在2005年,日本东京附近.
+最后一次目击者目睹他们在2005年,位于日本东京附近.
 
 * * *
 
@@ -469,27 +469,27 @@ They come from constellation Vela,near the star Suhail AI Muhlif.
 
 They grow up to 2 meters high(6') and live up to 200 years.
 
-他们能长到2米高(6英尺),能活到200年.
+他们可以长致2米高(6英尺),寿命达200年.
 
 They can shape-shift and are very hard to detect.
 
-他们能形状转换而且很难检测到.
+他们的形状可以变换并且很难检测出来.
 
 When they shap-shift the only thing they can not change is the size and colour of their eyes.
 
-当他们变形得时候唯一不能改变得是他们的眼睛大小和颜色.
+当他们变形的时候，唯一不能改变的是他们的眼睛大小和颜色.
 
 They are one of the oldest known races.
 
-他们是已知最老的种族之一.
+他们是已知外星人中最老的种族之一.
 
 They do abduct humans.
 
-他们绑架人类.
+他们会绑架人类.
 
 Last seen on earth in July of 2008.
 
-最后目睹在地球上是2008年7月.
+最后一次目击者目睹他们是在地球上，时间是2008年7月.
 
 * * *
 
@@ -501,7 +501,7 @@ PLEYADIYANS
 
 They come from solar systems surrounding the Pleyadiyes stars,more precisely from the planet Erra near the star Taygeta.
 
-他们来自围绕在昴宿星的太阳系统,更精确来自埃拉行星靠近昴宿二.
+他们来自围绕在昴宿星的太阳系统,更精确的来说，是来自埃拉行星靠近昴宿二.
 
 They are associated with spiritual growth.
 
@@ -509,7 +509,7 @@ They are associated with spiritual growth.
 
 They can grow up to 2.5 meters (8').
 
-他们能长到2.5米(8英尺).
+他们能长至2.5米(8英尺).
 
 They practice "sex cultivation",the distinct difference between their sexual expressions and their sensual emotions.
 
@@ -517,19 +517,19 @@ They practice "sex cultivation",the distinct difference between their sexual exp
 
 Their ships are known as "beamships".
 
-他们的飞船广为人知的"梁船".
+他们的飞船是广为人知的"梁船".
 
 Although regularly visiting Earth,they have remained mostly "silent" since 10.000 BC.
 
-尽管很常规的访问于地球,他们依然保持着最"静默"早在公元前10000年.
+尽管早在公元前10000年他们就已经定期访问地球了,但他们却从不声张.
 
 They are one of the oldest known races.
 
-他们是已知的最老的种族之一.
+他们也是已知的外星人中最老的种族之一.
 
 They continue to develop the neccessary mental skills to eventually reach their goal:an even higher "spiritual state".
 
-他们继续发展必须的心智技能为了最终达到他们的目标: 一个平坦更高层次的"精神状态"。
+他们一直发展必须的心智技能是为了最终能达到他们的目标: 实现一个平坦且更高层次的"精神状态"。
 
 * * *
 
