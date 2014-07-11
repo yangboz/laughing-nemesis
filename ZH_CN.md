@@ -812,23 +812,23 @@ They have colonized over 40 planets outside our solar system...so far!
 
 Of the 58 races desribed here,this is the race that least visited Earth(that we know of so far)... only 5 times.
 
-在这描述的58个种族中,这个种族至少访问过地球(据我们所知)...仅5次.
+在所描述的58个种族中,(据我们所知)这个种族仅访问过地球5次.
 
 They visited the area we know as the middle-east and that created the belief in the "Jinn"(or "genies") in Islamic mythology.
 
-他们访问的地域是我们所知的中东和一些创建了在伊斯兰神话中被深信"神灵"(或者"妖怪").
+他们访问的是一些我们所熟知的创建了伊斯兰神话中被深信"神灵"(或者"妖怪")的中东地域.
 
 According to some  Muslims scholars they inhabit an unseen world in a dimension beyond the existing dimensions of our universe.
 
-通过一些穆斯林学者所说他们居住在一个不可见的世界维度超出我们这个宇宙已经存在的维度.
+据一些穆斯林学者说，他们居住在一个超出我们这个宇宙而存在的不可见的世界维度.
 
 According to the reports from other alien races,they stopped visiting Earth because their immuse system could not copy with Earth's fauna and flora.
 
-通过这些报道来职其它外形种族,他们停止了访问地球是因为他们的免疫系统不能应付地球上的动植物.
+根据其他外星种族的报道，,他们停止访问地球是因为他们的免疫系统无法应付地球上的动植物.
 
 Last recorded visit: 712 AD.
 
-最后的访问记录:公元前712年.
+最后的访问记录是公元前712年.
 
 * * *
 
@@ -840,19 +840,19 @@ THE "INVISIBLES"(no image)"不可见"(无图)
 
 This race is know as have been "seen" near high-security areas.
 
-这个种族据知被"看见"靠近一些相当安全的区域.
+在靠近一些相对安全的区域时，据知这个种族被"看见"过.
 
 They are almost completely invisible to the naked eye.
 
-他们几乎完全不可见对于我们肉眼.
+对于我们肉眼来说，他们几乎完全不可见.
 
 Both the USA and Russian military have developed technlogy that allows them to track them down on radar (just the ships).
 
-美国和苏联军队都研发技术为了能够让他们去追踪它们至雷达上(仅仅是飞船).
+美国和苏联军队都研发技术仅仅是为了能够在雷达上追踪到它们(仅仅是飞船).
 
 3 things about konwn about this race:
 
-关于这个种族已知的3件事:
+关于这个种族已知有3件事:
 
 1-they leave a sour smell when they are near.
 
@@ -860,11 +860,11 @@ Both the USA and Russian military have developed technlogy that allows them to t
 
 2-when they are near windows you can "see" their reflections as a "smudged-like" figure (have been caught on cctv footage)
 
-2-当他们靠近窗户的时候你能"看"到他们的倒影形似于一种"污渍类似"形状(已经被闭路电视录像抓怕下来过)
+2-当他们靠近窗户的时候你能"看"到他们的倒影形似于一种"污渍类似"形状(已经被闭路电视录像抓拍下来过)
 
 3- when many dogs (or only 1)start barking with no apparent reason,it is possible that they are nearby (or Reptoids/Reptilains)
 
-3-当很多狗(或者仅一只)开始犬吠没有任何迹象原因,就是有很可能他们在附近(或者爬行动物/爬行虫类)
+3-当很多狗(或者仅一只)开始没有任何迹象原因地吠叫，很可能他们就在附近(或者爬行动物/爬行虫类)
 
 They come from constellation Mensa.
 
@@ -884,19 +884,19 @@ ALLMAHULUK-STRAT-163
 
 They were forced to leave Earth after lossing a battle against Reptoids in ancient India (date unknown),which there had been visiting for around 200 years.
 
-他们被强制离开地球在输了一张战争,敌人是在古印度(时间未知)的爬行动物,他们之前访问地球于200年.
+在输了一场战争之后，他们被强制要求离开地球，敌人是在古印度(时间未知)的爬行动物,他们之前于200年访问过地球.
 
 They have resumed their visits to Earth in 1948.
 
-他们已恢复访问地球在1948年.
+他们在1948年的时候恢复访问地球.
 
 Technologically this is a very advanced race.
 
-技术层面上说这个种族是一个非常先进的种族.
+在技术层面上说，这是一个非常先进的种族.
 
 Their ships are offen invisible(to radar and the Human eye)and they wear some sort of clothing that makes them invisible as well.
 
-他们的飞船经常不不可见(对于雷达和人类肉眼)而且他们身穿一些衣服能让他们同样不可见.
+(对于雷达和人类肉眼)他们的飞船经常不可见，而且他们身穿一些能让他们同样不可见的衣服.
 
 Supposedly they come from Jupiter or from one of its moons.
 
@@ -916,7 +916,7 @@ AINANNA(no image)
 
 The memebers of this race are the cause why Humans coined the term "Martians".
 
-这个种族的成员是导致了为什么人类铸造了“火星人”.
+这个种族的成员是导致了人类为什么铸造了“火星人”的原因.
 
 They come from constellation Gemini.
 
@@ -924,13 +924,13 @@ They come from constellation Gemini.
 
 They have had permanent bases on Mars for thousands of years,where they mine some sort of a gold-like material.
 
-他们有永久基地在火星上持续了上千年,他们在那采集一些类似黄金一样的矿石.
+他们在火星上有持续了上千年的永久基地,他们在那采集一些类似黄金一样的矿石.
 
 ![Screenshot of "Alien_Race_AINANNA_GOLD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA_GOLD.jpg)
 
 First recorded visit to Earth:1235 BC in Japen.
 
-第一次有记录的访问在地球上是:公元前1234年在日本.
+第一次有记录的访问是在地球上:公元前1234年在日本.
 
 Last sighting:Madagascar,2003.
 
@@ -950,23 +950,23 @@ This race has several bases on and in the Moon,where they mine (unkown material)
 
 They use "slaves" to do most of their work...these "slavesz" are extremely well taken care of,and the Indugutk see them as "indispensable".
 
-他们使用"奴隶"去做大部分他们的活...这些“奴隶们”很少被照看的很好,而且Indugutk视作他们为"不可缺少的".
+大部分的活儿，他们都使用"奴隶"去做...这些“奴隶们”都很好操控，而且Indugutk将他们视为"不可缺少".
 
 Their operations on and in the Moon are very secretive.
 
-他们的操作在月球地表或地下非常的隐秘.
+在月球上，他们的行动十分隐秘.
 
 They are in almost permanent contact with High-ranking officals from the USA,China and Russian Fed. governments.
 
-他们完全在永久接触高级别政府官员,来自美国,中国和俄罗斯外交政府部门.
+他们从美国、中国和俄罗斯外交政府部门接触到高级别政府官员.
 
 They have the ability to shape-shift into an almost perfect Human form.
 
-他们有这样的能力去形状转换为几乎完美的人类型态.
+他们具备这样的能力去形状转换成为几乎完美的人类型态.
 
 They are also known as "Men in Black",as they use special dark suits(to protect their skin) when in Human-shape while conducting special operations on Earth.
 
-他们是广为人知的"黑衣人",是因为他们使用特别的深色外套(为了保护他们的皮肤)当有类人型态的时候同时在地球上执行特别的操作.
+当他们以人类形态在地球上进行特别行动时，他们是广为人知的"黑衣人",那是因为他们使用特别的深色外套(为了保护他们的皮肤).
 
 * * *
 
@@ -982,15 +982,15 @@ They come from constellation Crux,near Gacrux.
 
 It is a very hard to track down or spot.
 
-非常难去追踪下来或者认出.
+他们难以追踪或被识出.
 
 Both the USA and Russian military have developed  a special camera and radar system that allows to spot them when they are on Earth.
 
-美国和俄罗斯军方已经研发出来了一种特别的照相机和雷达系统当他们在地球上当时候认出来.
+美国和俄罗斯军方已经研发出来了一种特别的照相机和雷达系统，当他们在地球上时就会被认出来.
 
 But even then,they have only been sighted 8 times.
 
-但是最终这样,他们也就被目击过8次.
+但即使这样,他们也就被目击过8次.
 
 The purpose of their presence is unknown.
 
@@ -998,7 +998,7 @@ The purpose of their presence is unknown.
 
 When they are sighted it is usually in the area known as the Bermuda Trangle.
 
-当他们被目击的通常出现的地方就是已知的百慕大三角.
+他们通常被目击出现在百慕大三角地区.
 
 * * *
 
@@ -1010,7 +1010,7 @@ When they are sighted it is usually in the area known as the Bermuda Trangle.
 
 They have only contacted Humans one time:in the USSR in 1935.
 
-他们仅联系过人类时间段在:1935年的苏联.
+他们仅一次接触过人类;苏联1935.
 
 According to reports they spoke some kind of Slavic dialect.
 
@@ -1018,7 +1018,7 @@ According to reports they spoke some kind of Slavic dialect.
 
 They left a writen message with about 10 sentences.
 
-他们留下一手写的信息大约有10句话.
+他们留下一份大约有10句话的手写信息.
 
 They come from galaxy UDFJ-39546284.
 
@@ -1026,7 +1026,7 @@ They come from galaxy UDFJ-39546284.
 
 Estimated distance from Earth (our standard) is 13.2 billion light years.
 
-估算距离地球(我们的标准)有13.2亿光年.
+(据我们的标准)估算距离地球有13.2亿光年.
 
 They travel by using what other alien races call "worm-hole",which allows them to "bend" space.
 
@@ -1036,13 +1036,13 @@ They travel by using what other alien races call "worm-hole",which allows them t
 
 On the original ARB(our copy/edition),9 of the sentences left by this race are "blacked-out"...they only one that is not is this one:
 
-在原始的ARB(我们的手印/编辑),这个种族留下的9句话都被"抹黑"了...仅只有一条没有在其中是:
+在原始的ARB里(我们的手印/编辑),这个种族留下的9句话都被"抹黑"了...仅只有一条没有在其中的是:
 
 "2017-2022"
 
 According to reports they were tall,had blonde long hair and "smelled like flowers"
 
-基于报道他们个子高,有长长金发和"闻起来像花"特征.
+基于报道他们个子很高,有长金发和"闻起来像花"的特征.
 
 
 * * *
@@ -1063,23 +1063,23 @@ They are one of most peaceful races.
 
 They co-created the alliance of the 5 races("Council of the Five"),but are not part of it.
 
-他们联合创建了5个种族联盟("5委员议会"),但是他们不是其中的一份子.
+他们联合创建了5个种族联盟("5委员议会"),但他们并不是其中的一份子.
 
 The "Council of the Five" are a group of 5 alien races that protect Humans against less peaceful races.
 
-"5委员议会"由5种外星人种族组成为的是保护人类对付一少部分不爱好和平的种族.
+"5委员议会"由5种外星人种族组成，为的是保护人类对付一少部分不爱好和平的种族.
 
 They "coined" the sentence:"5 universes,2500 species,1 race"
 
-他们"创造"了这句话:"5个宇宙,2500物种,1种族"
+他们"创造"了这句话:"5个宇宙,2500个物种,1个种族"
 
 The Council is supposed to meet on Earth during the last 10 days of August of 2013,the reason being the fact that Earth has been receiving "too many" visits from new races in the past 500 years.
 
-议会假定在地球举行会议时间期间在2013年8月的最后10天,真实背后的原因是地球收到了"太多"来自新种族的访问在过去的500年中.
+议会假定在地球举行的时间为2013年8月的最后10天,背后真实的原因是在过去的500年中地球收到了"太多"来自新种族的访问.
 
 Last sighting on the Earth: near the Sea of Cortez,September 2002.
 
-最后目击在地球上是:靠近科尔特斯海,2002年9月.
+最后一次目击是在地球上:靠近科尔特斯海,2002年9月.
 
 
 * * *
@@ -1092,11 +1092,11 @@ JIGHANTIK
 
 Maintains sporadic contacts with 3 Earth governments,but not the most powerful ones(not USA,Russia or China).
 
-维持零星的接触于地球上的三个政府,但是不最具有权力的国家(非美国,俄罗斯,中国)
+保持与地球上的三个国家的政府有零星的接触,但都不是最具有权力的国家政府(非美国,俄罗斯,中国)
 
 Considered to have a violent nature by other races.
 
-被其它种族认为有暴力本质.
+他们被其它种族认为有暴力本质.
 
 They have been visiting Earth for 3.000 years.
 
@@ -1104,11 +1104,11 @@ They have been visiting Earth for 3.000 years.
 
 They come from constellation Horologium and are known to have as allies the race Maitre.
 
-他们来自时钟星座而且是广为人知的与Maitre种族是联盟.
+他们来自时钟星座而且与广为人知的Maitre种族联盟.
 
 Last sighting:near Huston,USA,Feburary 1 of 2003.
 
-最后目击:靠近美国休斯顿,2003年2月1日.
+最后一次目击:在靠近美国休斯顿,2003年2月1日.
 
 
 * * *
@@ -1121,11 +1121,11 @@ JEFOK
 
 They come from constellation Indus.
 
-他们来自印度安星座.
+他们来自印第安星座.
 
 They are known by other races as "peace-makers".
 
-他们被其它种族广为人知为"和平制造者".
+他们被其它种族称为"和平制造者".
 
 They are very advanced technologically.
 
@@ -1133,23 +1133,23 @@ They are very advanced technologically.
 
 Their first sighting on Earth dates back to 1500 BC.
 
-他们出现在地球时间可以回到公元前1500年.
+他们第一次出现在地球的时间可以追溯到公元前1500年.
 
 They met with JFK 3 weeks before he was killed.
 
-他们会见了约翰·菲茨杰拉德·肯尼迪(=John Fitzgerald Kennedy)在他被刺杀三周前.
+在肯尼迪被刺杀前三周，他们见了面.
 
 They have also (around the same time) met with other Human world leaders.
 
-他们同时(大约在同一时间)也会见了其它人类世界领导人.
+他们大约在同时也会见了人类世界其它的领导人.
 
 They have not been seen on Earth since JFK's death.
 
-他们没有在地球上被看到直到约翰·菲茨杰拉德·肯尼迪(=John Fitzgerald Kennedy)死亡.
+直到肯尼迪被刺杀了，他们都没有再见上面.
 
 In 1965 they gave a message to the Human leaders that ran countries with nuclear capability (content unknown).
 
-在1965年他们留给人类领导人信息是运营有核能力的国家(内容未知)
+在1965年的时候，他们给有核能力的国家领导人发信息(内容未知)
 
 * * *
 
@@ -1165,23 +1165,23 @@ They grow to a maximum height of 0.5 meters (1.6').
 
 They have visited Earth at least 250 times.
 
-他们有访问过地球至少250次.
+他们访问过地球至少250次.
 
 They come from Cassiopeia,where they have 2 home-planets.
 
-他们来自仙后星座,那儿他们有2个主星球.
+他们来自仙后星座,他们在那里有2个主星球.
 
 They eat other alien races as well as Humans.
 
-他们吃其它外星人当然包括人类.
+他们会吃其它星球的外星人，当然也包括人类.
 
 Their race is at least 4 billion years old and they have been in a constant state-of-war with another alien species for 2 billion years.
 
-这个种族是至少有40亿年老了而且他们一只有亿个持续的战斗中与其它外形种族持续了2亿年.
+这个种族至少有40亿年的历史了，而且他们一直不断地跟其它外形种族发生战争并持续了2亿年.
 
 Last sighting on Earth: November 2001,Italian Alps.
 
-最后目击在地球时间是:2001年11月,意大利阿尔卑斯山脉.
+最后一次目击是在地球上，时间是2001年11月,地点在意大利阿尔卑斯山脉.
 
 
 * * *
@@ -1194,31 +1194,31 @@ MAGELL
 
 Known to be a very peaceful race.
 
-已知的非常爱好和平的种族.
+这是一个非常爱好和平的种族.
 
 They have 2 permanent bases somewhere in South of America.
 
-他们有两个永久基地在南美的某个地方.
+他们在南美的某个地方有两个永久基地.
 
 They are 100% nocturnal,do not interact with Humans and are described by other alien races as "shy".
 
-他们100%夜间活动,不直接和人类交往而且被其它外星人描述为"害羞".
+他们只会在夜间活动,不会直接和人类交往而且被其它外星人描述为十分"害羞".
 
 They harvest insects and rodents by the many thousands on a monthly basis...reason:unknown.
 
-他们收获昆虫和捕捉成千的啮齿动物按月度来...原因:未知.
+他们按月度来收获昆虫和捕捉成千的啮齿动物...原因:未知.
 
 At least 3 of them have been under Brasilian military custody for the past 12 years.
 
-至少他们中的3个被巴西军方监禁在过去的12年中.
+在过去的12年中，他们中至少有3个被巴西军方监禁过.
 
 Last sighting:near Oaxaca,Mexico,in 2003
 
-最后目击:靠近瓦哈卡州(位于墨西哥南部),2003年.
+最后一次目击:靠近瓦哈卡州(位于墨西哥南部),2003年.
 
 They are visited by their own kind (race) every 20 years...the next visit should be around 2016.
 
-他们被他们自己同类(种族)访问每20年...下一次访问的时间大约在2016年.
+每隔20年就会有他们自己的同类(种族)来进行访问...下一次访问的时间大约在2016年.
 
 * * *
 
@@ -1234,19 +1234,19 @@ They come from constellation Sextans.
 
 One of their ships crashed outside of Varginha(Brazil) in 1996.
 
-他们当中一艘飞船坠毁在瓦尔金哈(巴西)1996年.
+他们当中的一艘飞船曾在1996年坠毁在瓦尔金哈(巴西).
 
 2 of its occupants are under USA custody,after having paid billions of dollars to the Brazilian government.
 
-其中2个船员被美国拘禁,这是在美国支付上十亿的美元给巴西政府之后.
+在美国支付上十亿美元给巴西政府之后，其中的2名船员被送回美国拘禁.
 
 They have the fastest ships of any known alien races.
 
-他们有速度最快的飞船超出其它已知的其它外星人种族.
+他们拥有超出其它外星人种族速度最快的飞船.
 
 Last sighting:February 2002,near Varginha (Brazil)...again!
 
-最后目击:2002年2月,靠近瓦尔金哈(巴西)...又一次!
+最后一次目击:2002年2月,靠近瓦尔金哈(巴西).
 
 * * *
 
@@ -1258,27 +1258,27 @@ MAITRE
 
 They have 2 home-planets in constellation Megopei.
 
-他们有两主星球在Megopei星座.
+他们在Megopei星座有两个主星球.
 
 They have the same average height as Humans and are considered by many alien races as "parasites".
 
-他们有同样的平均身高类似人类而且被很多外星人种族看作是"寄生虫".
+他们有与人类相同的平均身高而且被很多外星人种族看作是"寄生虫".
 
 Visited Earth for the first time during the pre-historic period (date unknown).
 
-访问地球十在第一次史前时代(时间未知).
+他们是在第一次史前时代(时间未知)的时候访问地球.
 
 Abduction of Humans is carried out openly.
 
-绑架人类是公开实施的.
+公开实施绑架人类.
 
 They have the goal of colonizing Earth...that has not happened because of protection from other alien races,such as the one's in the "Coucil of the 5".
 
-他们有目标是在地球开拓殖民地...但是没有因为地球已经被其它外形种族保护,诸如"5委员议会"之一.
+他们有在地球开拓殖民地的打算...但并没有成功，因为地球已经被其它外形种族保护,诸如"5委员议会"之一.
 
 They are hermaphrodites and their life span is 120 years.
 
-他们雌雄同体而且他们的生命周期能到120年.
+他们是雌雄同体而且他们的生命周期是120年.
 
 They have colonized at 26 planets.
 
@@ -1286,7 +1286,7 @@ They have colonized at 26 planets.
 
 They have abducted at least 5.000 Humans(male).
 
-他们绑架过至少5000个人类(男性).
+他们至少绑架过5000个人类(男性).
 
 They have visited Earth at least 200 times.
 
