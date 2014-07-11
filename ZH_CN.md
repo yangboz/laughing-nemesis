@@ -546,15 +546,15 @@ They comes from constellation Volans.
 
 The sightings of this race on Earth are rare and they are considered as "a mystery race".
 
-在地球上目击这个种族非常少见而且他们被看作是"一个神秘的种族".
+在地球上目击过这个种族的人非常少，他们被看作是"一个神秘的种族".
 
 It is said that they were forbidden to visit Earth around the year 1.000 BC,but they did not stop visiting Earth compeletely...
 
-据说他们被禁止访问地球大约在公元前1000年,但是他们并没有完全停止访问地球...
+据说大约在公元前1000年他们就被禁止访问地球，但是他们并没有完全停止过访问地球...
 
 Last seen on Earth:December of 1989.
 
-最后目睹在地球:1989年12月.
+最后有目击者目睹他们是在地球上，时间是1989年12月.
 
 * * *
 
@@ -574,27 +574,27 @@ They come from the planet Dillimuns.
 
 They are the race "behind" the story of Enlil and Ninlil.
 
-他们是伊利尔和尼丽故事"之后"的种族.
+他们是"伊利尔和尼丽故事"之后"的种族.
 
 They were directly involved on the developement of the Human race during our early stages.
 
-他们直接涉及到在我们早期人类种族发展.
+他们直接关系到在我们早期人类种族的发展.
 
 After centuries away from Earth they have recently returned.
 
-在离开几个世纪之后他们最近返回了.
+在离开地球几个世纪之后他们最近又返回来了.
 
 Their own leader is amongst the most recent visitors.
 
-他们自己的领导者也在最近访问者之中.
+他们自己的领导者，也包含在最近的访问者内.
 
 They will now stay on Earth permanently... they will have an important role in the years to come.
 
-他们现在将永久的呆在地球...他们将有一个非常重要的角色持续在接下来的年头.
+他们将永久的留在地球...在接下来的时间里，他们将担任一个非常重要的角色.
 
 They spend time immersed in a precious gold-like liquid that presumably extends their life span.
 
-他们花时间沉浸在一个极其像黄金一样的液体中,据推测能延长他们的生命线.
+他们花时间沉浸在一个极像黄金一样的液体之中，据推测这能延长他们的生命线.
 
 * * *
 
@@ -610,27 +610,27 @@ They come from galaxy Sextans Dwarf SPH.
 
 First visited Earth in 934 AD in the area that we now know as Romania.
 
-首次访问地球时间在公元前934年,地点是在我们所知的罗马尼亚.
+首次访问地球的时间是在公元前934年，地点是在我们所知的罗马尼亚.
 
 They often abduct and kill humans...they also drain and drink the blood of Humans as well as the blood of animals.
 
-他们经常绑架和杀害人类...他们也喝和吸人类的血液或者其他动物的.
+他们经常绑架和杀害人类...他们也吸食人类或其他动物的的血液.
 
 They are responsible for the myth of vampires.
 
-他们有责任于神秘的吸血鬼.
+他们对神秘的吸血鬼有直接的影响.
 
 Sereral Human governments know and accept their actions.
 
-几个人类政府知道而且接受他们的行动.
+一些政府知道并默许他们的行为.
 
 The Human bodies that they "used" are never returned.
 
-这些他们所"用"的人体从来没有归还过.
+他们所"用"的人体却从没归还过.
 
 Last sighting:Scotland,in 1996.
 
-最后目睹:苏格兰,在1996年.
+最后一次目击者目睹:是在苏格兰,时间是1996年.
 
 * * *
 
@@ -646,23 +646,23 @@ They come from consellation Camelopardalis.
 
 From the 1300's to the early 1900's(our calendar)they were not allowed to leave their planet by other alien races.
 
-从1300年到早期的1900年(我们的日历)他们被其他外星种族规定不容许离开他们的星球.
+早致1300年到1900年，他们被其他外星种族规定不容许离开所在的星球.
 
 They are very violent and "predatory" race.
 
-他们是非常暴力和"掠夺性"的种族.
+他们是个非常暴力和极具"掠夺性"的种族.
 
 They are known to be allies of the race Maitre.
 
-他们是一知道的Maitre种类的同盟.
+他们是Maitre种类的同盟.
 
 They grow up to 1.6 meters (5').
 
-他们能长到1.6米(5英寸).
+他们能长致1.6米(5英寸).
 
 Last seen on Earth: August of 2001.
 
-最后目睹在地球上:2001年8月.
+最后一次目击者目睹是在地球上:时间为2001年8月.
 
 * * *
 
@@ -674,11 +674,11 @@ AL -GRUUALIX
 
 They come from constellation Cetus,near Deneb Kaitos Shemali.
 
-他们来自鲸鱼星座,靠近Deneb Kaitos Shemali.
+他们来自靠近Deneb Kaitos Shemali的鲸鱼星座.
 
 Although there are ofen confused with reptilian races,they do not share anything with them except their appearance.
 
-尽管他们经常被混淆于爬行类种族,他们除了他们外观其它什么东西都不分享.
+尽管他们经常与爬行类种族混淆，但是除了外观，他们其它东西都不会与族外分享.
 
 Their height is around 2 meters(6') and they can live up to 350 years.
 
@@ -686,19 +686,19 @@ Their height is around 2 meters(6') and they can live up to 350 years.
 
 This is one of 21 races that are known to have more than 2 genders(sexes).
 
-这是一个已知有21个种类,不止2个性别.
+这是一个已为人知的不止2个性别、共有21个种族的族群.
 
 This race has 8 different genders and all of then can reproduce with each other.
 
-这个种族有8种不同性别而且他们都能相互产生下一代.
+这个种族共有8种不同的性别而且他们都能相互繁殖.
 
 The purpose for their visits Earth is unknown.
 
-他们访问地球的目的还不知道.
+他们访问地球的真正目的暂时还不知道.
 
 Last sighting was near Lima(Peru) in December of 2004.
 
-最后目睹在利马(秘鲁)附近,时间是2004年12月.
+最后一次目击者目睹在秘鲁利马附近,时间是2004年12月.
 
 * * *
 
@@ -710,15 +710,15 @@ Last sighting was near Lima(Peru) in December of 2004.
 
 Probably the most enigmatic of all alien races...not much is known about them.
 
-或许最不可思议的外星人种族中...知之甚少的就是关于他们.
+或许在最不可思议的外星人种族之中...最知之甚少的就是关于他们.
 
 They visit Earth around every 300 years.
 
-他们访问地球每隔300年.
+他们每隔300年就会访问地球.
 
 Their next visit is supposed to happen anytime now...
 
-他们下一次假定来访问可以发现在现在的任何时间...
+他们的下一次来访可以假定在现在的任何时间内...
 
 They do not reveal themselves,they do not make direct contact with humans.
 
@@ -726,11 +726,11 @@ They do not reveal themselves,they do not make direct contact with humans.
 
 They leave carvings,drawings and writtings on rocks as well as symbols in historical monuments.
 
-他们留下雕刻,壁画和在石头上刻字类似一些有历史意义的山头上的留下的图案.
+他们会在地球上留下雕刻、壁画和在石头上刻字，类似在一些山头上留下有历史意义的图案.
 
 Their ships have the shape of a "tear drop" and are silver in colour.
 
-他们的飞船有形似"掉落泪珠"和银光的颜色.
+他们的飞船是银白色“泪滴”一样的形状.
 
 * * *
 
@@ -746,27 +746,27 @@ They come from Capella,constellation Auriga.
 
 Known to be a peaceful race.They try to co-exist with Humans.
 
-已知是一个和平的种族.他们尝试和人类并存.
+这是一个已知的和平种族.他们尝试和人类并存.
 
 They "created" the Mayan civilization (culture) by placing humans from different places on Earth  in South America.
 
-他们"创建"了玛雅文明(文化)通过把人类安放在地球的南美洲.
+他们通过把人类安放在地球的南美洲而"创建"了玛雅文明(文化).
 
 They are race of "scientists"...They taught the Mayans about astronomy and "time".
 
-他们是"科学家"种族...他们教会玛雅人有关太空学和"时间".
+他们属于"科学家"种族...教会了玛雅人有关"时间"和太空学.
 
 They left Earth when the Mayans were at their highest splendor.
 
-他们离开地球是当玛雅人达到了他们最高辉煌.
+当玛雅人达到了他们最高辉煌的时候，他们便离开地球.
 
 After that the Mayans started the well known "blood sacrifices" in their honor.
 
-之后玛雅人开始广为人知的"血祭"以他们的荣耀.
+之后，玛雅人开始广为人知的"血祭"以示他们的荣耀.
 
 This race has been on Earth many times after that...
 
-这个种族在这之后来过地球好几次...
+这个种族在这之后还来过地球好几次...
 
 Last sighting: Bora-Bora in 2001.
 
@@ -786,23 +786,23 @@ They come from constellation Vulpecula.
 
 They have met with (at least) 2 USA Presidents as well as with USSR and (now)Russian leaders and some high-ranking officials.
 
-他们遇见过(至少)2位美国总统当然也有(现今)的俄罗斯领导人和一些高职位的政府官员.
+他们遇见过(至少)2位美国总统，当然也有（现今的）俄罗斯领导人和一些高职位的政府官员.
 
 They supply limited amounts of their technology to humans in exchange for the "freedom" to conduct abductions.They do not involve other alien races in this process.
 
-他们提供有限数量他们的技术给人类为了交换"自由"的执行绑架活动.在这个过程中其它外星人不涉及.
+他们提供有限数量的技术给人类，为了交换"自由"地执行绑架活动.在这个过程中不涉及其它外星人.
 
 They had a big role of Siberian and Tibetan culture.
 
-他们有个很大的角色在西伯利亚和西藏文化.
+他们在西伯利亚和西藏文化中充当十分重要的角色.
 
 They still have bases in those areas hidden in the north-face of moutains.
 
-他们仍旧在这些区域有基地隐藏在面朝北边的一些山头.
+他们的基地仍然隐藏在一些面朝北边的山头里.
 
 They have colonized over 40 planets outside our solar system...so far!
 
-他们克隆了超过40个行星在我们太阳系之外...迄今为止!
+迄今为止，他们在我们的太阳系之外克隆了超过40个行星...
 
 * * *
 
