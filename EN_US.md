@@ -2035,3 +2035,71 @@ One thing though:the story goes that  200 years later that culture simply vanish
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "Alien_Files_The_Tunguska_explosion"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion.png)
+
+DAY OF SHAME
+
+THE TUNGUSKA EXPLOSION
+
+The Tunguska "incident" was a powerful explosion that occured in a desolate area near the Tunguska River in Russia,on June 30,1908.
+
+It is commonly believed to have been caused by the explosion of a large meteoroid in Earth's atmosphere about 5-10 Km(3-6 miles) high.
+
+The blast flattened an estimated 60 million trees over 2,150 square kilometers.
+
+But the Tunguska explosion did NOT have a cosmic birth and death...
+
+Here's the version of events that lead to the explosion...as told by a member of the TENGRI-TENGRI:
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.png)
+
+"For 5 days and 4 nights,near what you call Tunguska,the MAITRE had been fighting the DORSAY.
+
+Other races were starting to choose "sides" and were going to get involved.
+
+Even the "Council of 5" was worried with the escalation and seriouness of the event...
+
+On the day of that great explosion an EL-MANOUK ship came to Earth in order to try try ending the conflict...the EL-MANOUK are respected wherever we may go...they are wish and impartial.With them came a PLEYADIYAN ship...one of their biggest.
+
+The Maitre were warned by the Reptilians of the coming presence of the EL-Manouk and the Pleyadiyans...Earlier that day the Maitre has just shot down the last of the Dorsay ships...
+
+When the Pleyadiyans entered Earth's atmosphere they were attcked by 3 Maitre ships and destoryed.
+
+One El-Manouk ship was to also destoryed in space that day...
+
+And that is what happened in Tunguska."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_01.png)
+
+THE DEVASTATION IN TUNGUSKA
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Also according to the Tengri-Tengri:
+
+"The Pleyadiyan ship that was destroyed that day near Tunguska was not supposed to come to Earth that day...they were going to a different destination,carrying the things they do...their Holy Rocks and other materials...the El-Manouk asked them to help them in solving the conflict...and they paid the price with the ending of this life of theirs..."
+
+In 2003 crystals with strange symbols,inscriptions and holes were found in the Tunguska region...futher lab analysis showed that their composition is made of certain Earth minerals as well as some elements that are not found  on Earth.
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_crystals"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_crystals.png)
+
+(NOTE OF MYSELF AND PETRO: in late 2008 the crystals were presented to the media by a Russian scientist.After much disccussion about the origin of the crystals,the matter lost interest and it is supposed that the crystals now rest in a private collection)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The CHULKAE(as aliens call them) are NOT an alien race as commonly accepted for many years by different APIS.
+
+Alien also do not know how they evolved or where they came from.
