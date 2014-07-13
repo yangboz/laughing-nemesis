@@ -1913,7 +1913,7 @@ MYTHILAE
 
 Once related to the Reptoid species,they are not,however,Reptilians.
 
-曾经像爬虫的外星人种族相关,他们不是,然而,就是爬虫.
+曾经与爬虫的外星人种族有关,然而他们不是，就是爬虫.
 
 They come from constellation Serpens,star Alya.
 
@@ -1921,23 +1921,23 @@ They come from constellation Serpens,star Alya.
 
 First visit to Earth was only in June 13,1965.
 
-首次访问地球仅是在1965年6月13日.
+首次访问地球的时间是在1965年6月13日.
 
 They do not represent any threat to Humans.
 
-他们没有表现任何威胁给人类.
+他们没有对人类表现出任何威胁.
 
 Often seen around Antarctica.
 
-经常被看到是在南极洲附近.
+经常在南极洲附近被看到.
 
 The reason for their visits is unknown.
 
-他们访问的原因未知.
+他们访问地球的原因未知.
 
 Last sighting:Antarctica,May 1,1997.
 
-最后目击:南极洲,1997年5月1日.
+最后一次目击:南极洲,1997年5月1日.
 
 * * *
 
@@ -1949,11 +1949,11 @@ REPTILIANS
 
 The most known and feared of the Reptoid species (there are at least 3).
 
-他们是大多数直到而且害怕的爬行外星种族(这有至少3个).
+他们是已知的最可怕的爬行外星种族(这有至少3个).
 
 They have been permanently on Earth for over 15.000 years(confirmed) but the belief is that they may have been here(permanently or on-and-off) for millions of years.
 
-他们已经永久在地球上至少15000年(确认的)但是相信他们在这(永久或者时断时续的)在这百万年中.
+据确认，他们至少已经在地球上生活了15000年，但相信他们已经在这(永久或者时断时续的)生活了上百万年.
 
 They come from constellation Draco.
 
@@ -1961,15 +1961,15 @@ They come from constellation Draco.
 
 They have a presence in thousands of planets and have at least colonized 500 by means of "infiltration" within the leadership of each planet...
 
-他们出现在上千个星球上而且至少克隆了500个星球凭借"渗透"各种星球领导的方式...
+他们出现在上千个星球中，而且凭借"渗透"各个星球领导的方式至少克隆了500个星球.
 
 Some (not all) of their members have the power to shape-shift as well as telepathic abilities.
 
-一些(不是全部)他们中的成员拥有能力去变形也有心灵感应的能力.
+他们中的一些(不是全部)成员拥有变形的能力，也有心灵感应的能力.
 
 On Earth they did not need to infiltrate Human leadership all the time as they often lived side-by-side with Humans(most of them unaware) and "lived" our evolution ( all aspects of it).
 
-在地球上他们不需要渗透到人类领导人,大多数时间他们经常和人类并行居住(他们大多数没有发觉到)而且"住扎"我们的演变(它的所有方面).
+在地球上，他们不需要渗透到人类领导,大多数时间里，他们经常和人类并行居住(他们大多数没有发觉到)而且"住扎"我们的演变(它的所有方面).
 
 * * *
 
@@ -1981,23 +1981,23 @@ REPTILIANS
 
 They are considered one of the most technologically advanced species,but they prefer to work in the "shadows",using that as an advantage for their progress or plans/agenda.
 
-他们被认为最有先进技术的种族之一,但是他们更爱好在"阴影"下工作,在对他们先进计划/进程中进行.
+他们是被认为最有先进技术的种族之一,但是在对他们自己的先进计划实践中，他们更爱好在"阴影"下工作.
 
 They can travel inter-dimensionally (mot race can't) and some of their high-ranking members also have the power to become invisible... to have that power a reptilian must first be accepted in what they call "The Draco",an elite group of Reptilians.
 
-他们能到交互维度旅行(不是所有的种族都能)而且他们中的一些高阶级成员也有能力隐身...为了拥有那些能力,一个爬虫类首先必须接受所谓的能被称呼为"天龙",爬虫类的一个精英组织.
+他们能到交互维度旅行(不是所有的种族都能)而且他们中的一些高阶级成员也有能力隐身...为了拥有这些能力,首先一个爬虫类必须接受所谓的、能被称呼为"天龙"的一个爬虫类的精英组织.
 
 The Reptilians from "The Draco" are infiltrated(or even were co-founders) of the Illuminati.
 
-爬虫类从"天龙"过来的被渗透(或者甚至被共同创建)于光明/先知派.
+从"天龙"被渗透(或者甚至被共同创建)过来的爬虫类于光明/先知派.
 
 They have 3 main bases on Earthz:near the Bermuda Triangle, somewhere off the coast of Denmark and off the coast of New Zealand.
 
-他们有3个主要的基地在地球上:靠近百慕大三角,某处靠近丹麦的海岸和离岸于新西兰.
+他们在地球上有3个主要的基地:靠近百慕大三角,靠近丹麦海岸和离岸于新西兰某处.
 
 Some say that they will never leave...at least on their own!
 
-一些人说到他们将不回离开...至少他们自己不会!
+有人说他们将不会离开...至少他们自己不会!
 
 * * *
 
@@ -2009,15 +2009,15 @@ ALCOHBATA
 
 Presumably they have over 5.000 ships and have colonized over 100 planets on their own.
 
-据推测他们有超过5000艘飞船而且克隆了超过100个星球靠他们自己.
+据推测他们有超过5000艘飞船而且靠他们自己克隆了超过100个星球.
 
 Considered by other aliens as one of the "parasite" races.
 
-被其它外星人看为是"寄生生物"种族之一.
+他们被其它外星人看为是"寄生生物"种族之一.
 
 Abduction of Humans are frequent and on-going...
 
-绑架人类很频繁而且一直进行中...
+频繁绑架人类而且一直持续...
 
 Purpose of Human abductions:unknown.
 
@@ -2033,11 +2033,11 @@ They come from constellation Perseus and are extremely agressive.
 
 Suspected to have been involved in several airplane crashes,such as flight 007 over the USSR in 1983.The USSR leadership took the blame for that crash...
 
-可疑的是他们有参与很多起空难,比如航班007经过苏联在1983年.苏联领导人承受了这次事故的职责...
+可疑的是，他们有参与很多起空难,比如航班007在1983年经过苏联.苏联领导人承担了这次事故的责任...
 
 Last seen:September 2001 in Canada.
 
-最后目击:2001年9月在加拿大.
+最后一次目击:2001年9月在加拿大.
 
 * * *
 
@@ -2049,15 +2049,15 @@ NEGUMAK(aka Gnomopo)
 
 First known visit to Earth happened only in 1989.
 
-首次已知访问地球发生在1989年.
+首次已知访问地球的时间是在1989年.
 
 They abduct Humans and exercise control over the minds of their captives,which they use for their own benefit after the captives release.Reason:unknown.
 
-他们绑架人类而且训练通过控制他们的俘虏中的心智,这些是为了他们的利益当这些俘虏被释放以后.
+为了自己的利益，他们绑架人类而且控制俘虏的思想活动.
 
 This race was the "inspiration" for the alien race in the movie "Independence Day".(note of Petro and me:the ARB states the same thing about another race)
 
-这个外星种族是"启发"了电影"独立日".(Petro和我笔记:<<ARB>>称述了同样的事情关于其它种族)
+这个外星种族"启发"了电影"独立日"的创作.(关于其它种族Petro和我的笔记称述了同样的事情).
 
 They are one of oldest races.
 
@@ -2065,7 +2065,7 @@ They are one of oldest races.
 
 They are one of the races that most Human governments fear when considering the feature of Humans.
 
-他们是种族之一让大多数人类政府害怕的当设想人类未来的时候.
+当设想人类未来的时候，他们是让大多数人类政府害怕的种族之一.
 
 * * *
 
@@ -2077,7 +2077,7 @@ ZETA RETICULAI(aka Shamtbhala)
 
 Often confused(because of their appearance)with the races Maitre and Solipsi Rai(the "grays").
 
-经常混淆(由于他们的外表)于Maitre种族们和Solipsi Rai("灰人").
+经常被混淆(由于他们的外表)于Maitre种族和Solipsi Rai("灰人").
 
 They come from constellation Nets.
 
@@ -2085,11 +2085,11 @@ They come from constellation Nets.
 
 They are allies of the Anunnaki and cooperate with them in different planets...they are the representants of the Anunnaki on Earth and send them information about Humans and this planet at least 25 times per year.
 
-他们是Anunnaki的联盟而且和他们合作在不同的星球...他们代表了Anunnaki在地球上而且传送了信息关于人类和这个星球至少每年25次.
+他们是Anunnaki的联盟而且在不同的星球上与他们合作...每年至少25次，他们代表Anunnaki在地球上传送关于人类和这个星球信息.
 
 The Anunnaki createed a sub-species of the Zeta with the purpose of making them look more Human-like...but leaving enough physical differences for Humans to distinguished them.
 
-Anunnaki创建了一个Zeta的子种族目的是让他们看起来更像人类...但是留下了足够的物理上的区别为了人类去区别他们.
+Anunnaki创建了一个Zeta的子种族，目的是让他们看起来更像人类...但是留下了很多物理上的区别使人类能够区别开他们.
 
 They became some of the Pharaohs of Egypt.
 
@@ -2107,15 +2107,15 @@ The most well known was Akhenaten,who was removed from power by Reptilians...the
 
 First reports of Zeta's on Earth go back to 4.000 AD,but that number is most likely much higher.
 
-首次报道关于Zeta在地球回溯到公元前4000年,但是这个数字更好像靠前.
+首次关于Zeta在地球上的报道要追溯到公元前4000年,但也许要比这个数字更靠前.
 
 They were the first hybrids to be engineered by the Anunake(Anunnaki).
 
-他们是首个混合物种是由Annunake(Anunnaki)工程创建出来的.
+他们是由Annunake(Anunnaki)工程创建出来的首个混合物种.
 
 The Zeta sub-species still exists on Earth and still (at least 30%) present the same physical differences created in them.
 
-Zeta的子种族仍旧在地球上存在而且一直(至少30%)表现为同样的体格区别这些被他们创造的.
+Zeta的子种族仍旧存在地球上，而且一直(至少30%)表现为同样的体格区别这些被他们创造的.
 
 The sexual organs of the sub-species are in very aspect the same as that of Humans.
 
@@ -2129,7 +2129,7 @@ ZETA RETICULAI(aka Shamtbhala)
 
 The Zeta's still exist on Earth in both forms...the "original" and the hybrid sub-species.
 
-Zeta一直存在在地球上以两种形式..."原始的"和混合的子种类.
+Zeta一直以两种形式存在于地球上，即"原始的"和混合的子种类.
 
 Their location on Earth is...unknown !
 
@@ -2152,19 +2152,19 @@ Their origin is unknown.
 
 They are often seen near(or flying by) volcanoes.(Identified due to the exquisite nature of their ships)
 
-他们经常被看到靠近(或者飞过)火山.(经鉴定的对他们飞船性质十分注重)
+他们经常在靠近(或者飞过)火山的地方被看到.(经鉴定他们对飞船性质十分注重)
 
 They have never contacted Humans and there are no reports of violence or abductions.
 
-他们从没有联系过人类而且没有他们相关的暴力和绑架的报道.
+他们从没有联系过人类而且他们也没有相关的暴力和绑架报道.
 
 Even though they are discreet their presence on Earth is frequent and they do not try to hide from view.There are several contradictory reports about their appearance.
 
-尽管这样他们还是谨慎出现在地球很频繁而且他们不尝试隐藏被看见.他们由几个矛盾的报道关于他们的外表.
+尽管这样，他们还是谨慎而频繁地出现在地球上，而且他们不尝试隐藏被看见.他们由几个矛盾的报道关于他们的外表.
 
 Last sighted:Off the coast of Norway,in 2000.
 
-最后目击:在挪威的海面上,2000年.
+最后一次目击:在挪威的海面上,2000年.
 
 * * *
 
@@ -2176,11 +2176,11 @@ PURITAV-ILLUMU(aka Nosyv-7)
 
 Their origin is unknown.
 
-他们的出原地未知.
+他们的起源地未知.
 
 They are often sighted in the northwest of the USA (specially in the Oregon area).
 
-他们经常被目击到在美国的东北地区(特别是在俄勒冈地区).
+他们经常在美国的东北地区(特别是在俄勒冈地区)被目击.
 
 They have a special interest about Earth's oceans and are known to have underwater ships (aka USO's).
 
@@ -2188,15 +2188,15 @@ They have a special interest about Earth's oceans and are known to have underwat
 
 In the 1980's and 1990's they almost crashed a few times against US Navy ships while the americans were testing new sonar and radar systems.
 
-在1980和1990年代他们几乎毁坏了好几次针对美国海军船只哪时候美国人在测试新的声纳和雷达系统.
+在8、90年代，美国人在测试新的声纳和雷达系统，他们好几次近乎毁坏了美国海军船只.
 
 They are peaceful and mostly nocturnal.
 
-他们非常爱好和平俄且大多数夜间活动.
+他们非常爱好和平而且大多数时间选择夜间活动.
 
 Last sighted in the year 2000 near San Francisco,USA.
 
-最后目击在2000年靠近美国圣弗朗西斯科.
+最后一次目击是在2000年，靠近美国圣弗朗西斯科.
 
 * * *
 
@@ -2208,11 +2208,11 @@ X-1Z(aka "X",no image)
 
 Only sighted 2 times on Earth.
 
-仅仅在地球上出现了2次.
+他们仅在地球上出现了2次.
 
 According to reports from other races they are able to shape-shift as many as 4 times in 10 seconds.
 
-通过其它种族的报道他们能改变形状,10秒钟能变4次.
+据其它种族的报道得知，他们能改变形状,10秒钟能变4次.
 
 Their origin is unknown.
 
@@ -2220,15 +2220,15 @@ Their origin is unknown.
 
 They conduct Human abductions and perform medical experiments on the subjects.
 
-他们实施绑架人类而且执行医学实验在一些课题上.
+他们实施绑架人类，并且在一些课题上执行医学实验.
 
 The have been visiting Earth since the mid-1500's .
 
-他们一直访问地球从1500年中叶开始.
+他们从1500年中叶开始一直访问地球.
 
 They only 2 confirmed sightings happened near Elazig,Turkey.
 
-他们仅有2次确认目击发生在靠近土耳其伊拉菲克.
+他们仅有2次确认目击，是发生在靠近土耳其伊拉菲克.
 
 * * *
 
@@ -2240,7 +2240,7 @@ CARAVELDI
 
 Known to be (at times) extremely dangerous to Humans as well as to other alien races.
 
-已知(有时偶尔)极度危险对人类像其它外形种族一样.
+对人类或其它外星种族来讲，他们有时会极度危险.
 
 They come from constellation Chamaeleon.
 
@@ -2248,7 +2248,7 @@ They come from constellation Chamaeleon.
 
 They have been permanently involved in conflicts with a few other races for over 500 (Earth) years.
 
-他们永久性的参与了与一些少数外形组的冲突在(地球)上超过了500年.
+他们永久性的参与了与一些少数外星种族的冲突在(地球)上超过了500年.
 
 They are rarely seen on Earth.
 
@@ -2260,11 +2260,11 @@ They live up to 150 years.
 
 Reportedly they are 3 meters tall (9') and have 4 arms.
 
-报道过的他们有3米高(9英寸)而且有4个胳膊.
+有报道称他们有3米高(9英寸)而且有4个胳膊..
 
 Last sighting was near New Orleans,USA,in 1976.
 
-最后目击靠近美国新奥尔良,1976年.
+最后一次目击是在靠近美国新奥尔良,1976年.
 
 * * *
 
@@ -2280,19 +2280,19 @@ They come from constellation Bootes,near Asellus Primus.
 
 They also resemble the "grays" but are not "relatd".
 
-他们也与"灰人"相似但是不是"相关的".
+他们也与"灰人"有很多相似之处，但并没有直接的关系.
 
 This race has 4 different genders and they are known to be benevolent.
 
-这个种族有4个不同的性别而且他们已知是仁慈的.
+这个种族有4个不同的性别，而且他们以仁慈被大家熟知.
 
 The purpose of their visits is unknown,but they seem to have a special interest on raw materials/minerals (?) as they have been  often sighted near old mines.
 
-他们访问地球的目的未知,但是他们看上去有非常的兴趣在原始材料/矿产? 是由于他们经常被目击靠近一些老矿区.
+他们访问地球的目的未知,由于他们经常在一些靠近老矿区的地方被目击，由此断定他们似乎对原始材料/矿产非常感兴趣.
 
 Last sighting:San Isidro de EI General,Costa Rica,in 2005.
 
-最后目击:圣伊西德罗,哥斯达黎加,2005年.
+最后一次目击:圣伊西德罗,哥斯达黎加,2005年.
 
 * * *
 
@@ -2316,7 +2316,7 @@ They come from constellation Delphinus,near Sualocin.
 
 They have been visiting Earth for at least 4.000 years,but were sighted quite often during the 19th century.
 
-他们有访问过地球至少4000年了,但是很少被目击到在整个19世纪.
+他们访问地球至少有4000年了,但是在整个19世纪都很少被目击到.
 
 They served as inspiration for the alien race in the movie "Independence Day".(note of Petro and me:this is other -second- mention about a race being used as inspiration for that same movie)
 
@@ -2324,7 +2324,7 @@ They served as inspiration for the alien race in the movie "Independence Day".(n
 
 Last sighting happened near Marseille,France,in 1996.
 
-最后目击发生在靠近法国马赛,1996年.
+最后一次目击发生在靠近法国马赛,1996年.
 
 * * *
 
@@ -2336,23 +2336,23 @@ TISAR-3
 
 Their origin is unknown but there are reports stating that it takes them near 2 Earth years to get to this planet.
 
-他们出原地未知但是他们被报道开始说到他们花费了2个地球年让他们来到这个星球.
+他们的起源地未知，但是有报道说他们为了来到这个星球，花费了2个地球年.
 
 They are the survivors of an extinct Reptoid race and do not possess the same level of technology or knowledge as other races visiting Earth.They do have some Human characteristics,such as skin.
 
-他们是非常少有的外星爬虫种族的幸存者而且不拥有同样水平的科技或者知识像其它种族一样访问地球.他们确有一些和人类一样的品质,比如皮肤.
+他们是非常少有的外星爬虫种族的幸存者，而且像其它种族一样不拥有同等水平的科技或知识来访问地球.他们确有一些和人类一样的特点,比如皮肤.
 
 In 1977 or 1978,near Siena(Italy),2 of their species were captured after landing behind a church in ruins...3 days later they were transfered to a USA air base still in Italy and finally to an undisclosed location where,supposedly,they still remain...contacts have mentioned somewhere in the South Pacific or in another USA base near Japan.
 
-在1977或者1978年,靠近意大利锡耶纳,他们种族的2个被抓获在他们着陆的在已个教堂后的废墟中...3天后他们被运送到美国在意大利的空军基地而且最终到一个未泄漏的地区,假定是,他们依然...联系被提及到在南太平洋的某些地区或者另外的美国基地靠近日本.
+在1977、78年的时候,靠近意大利锡耶纳,在他们着陆的在一个教堂后的废墟后，2名成员被抓获...3天后他们被运送到美国在意大利的空军基地，而且最后到一个未泄漏的地区,假定是,他们依然...联系被提及到在南太平洋的某些地区或者另外的美国基地靠近日本.
 
 The USSR APIS/3 was able to get a hold of 1 video recording of this species.
 
-苏联APIS/3有能力掌握了一个视频记录有关这个种族的.
+苏联APIS/3掌握了一个有关这个种族的视频记录.
 
 Last sighting:January 3 2001,near Victoria,Canada.
 
-最后目击:2001年1月3日,靠近加拿大维多利亚.
+最后一次目击:2001年1月3日,靠近加拿大维多利亚.
 
 * * *
 
@@ -2364,23 +2364,23 @@ ELLINA
 
 Supposedly this is the race that started the myth of Elves(Elf).
 
-据推测这个种族开启了精灵的神秘故事.
+据推测，是这个种族开启了关于精灵的神秘故事.
 
 They are sighted often in the Germanic countries,deep in the forests.
 
-他们经常被目击在德国的乡村,在森林深处.
+他们经常在德国的乡村或森林深处被目击.
 
 They are not known to be lethal to Humans,however they are known as being "prankstes"... it seems that they enjoy scaring Humans when these get too close.
 
-他们已知为对人类是致命的,然而他们也是已知为是"顽皮的人"...好像他们喜欢吓唬人类当他们靠的太近的时候.
+已知他们为对人类有致命的伤害,然而他们也是公认的"顽皮的人"...当人类靠的太近的时候，他们喜欢吓唬人类.
 
 It has been reported that they have lured Humans away from their cars in order to steal their possessions...once the Humans are far away from their vehicles (and they already have stolen what they are wanted),they frighten them which makes the Humans leave the location.
 
-有关报道到他们诱惑人类离开他们的汽车为的是偷盗他们的财产...一旦人类人类远离了他们的交通工具(而且他们已经偷盗了他们想要的),他们就吓唬人们让离开他们的位置.
+据报道，他们诱惑人类离开他们的汽车，为的是偷盗他们的财产...一旦人类远离了他们的交通工具(而且他们已经偷盗了他们想要的),他们就会吓唬人类让他们离开所在的位置.
 
 Last sighting:Near Munique,Germany in December 2004.
 
-最后目击:靠近德国慕尼黑,2004年12月.
+最后一次目击:靠近德国慕尼黑,2004年12月.
 
 * * *
 
