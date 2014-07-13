@@ -1327,23 +1327,23 @@ They have abducted at least 520 Humanns(males and females).
 
 They come from the "third" star in constellation Cetus.
 
-他们来自第"3"个太阳在鲸鱼星座.
+他们来自在鲸鱼星座的第"3"个太阳.
 
 They have 2 home-planets and  have colonized at least 40 planets with the help of "slaves".10 of those planets were taken with the use of force.They work together with 3 other races. They mostly eat animal protein derived products.
 
-他们有2个主星球而且克隆两至少40个星球在"奴隶"的帮助下.其中10个星球是在用武力的情况下.他们和其它三个外形种族一起合作干活.他们大多数吃动物蛋白制品.
+他们有2个主星球而且在"奴隶"的帮助下至少克隆了40个星球.其中有10个星球是靠武力夺回来的.他们和其它三个外星种族一起合作干活.他们大多吃动物蛋白制品.
 
 According to alien reports,they are not "mentally/spiritually" prepared to interact with most other races.
 
-通过外星人报道,他们不是"心智/精神上"准备和其他大部分外星种族交往.
+据国外报道,他们不准备在"心智/精神"层面是和其他外星种族交往.
 
 Their 2 home-planets chemical composition is similar to Earth.
 
-他们的2个主星球化学组成成分和地球类似.
+他们的2个主星球化学组成成分与地球类似.
 
 They are supposed to "reveal" themselves to Humans in an open manner in 2022.
 
-他们假定去"展现"自己给人类以一种开放的仪式在2022年.
+他们假定在2022年以一种开放的形式去给人类"展现"自己.
 
 * * *
 
@@ -1355,31 +1355,31 @@ LANG
 
 Small spices growing only up to 70 centimeters(2').
 
-小部分种族仅仅只能长到70分米(2英寸).
+小部分种族仅能长到70分米(2英寸).
 
 They come from the "sixth star" in constellation Coma Berenices.
 
-他们来自"第6个太阳"在后发星座.
+他们来自在后发星座的"第6个太阳".
 
 They have 3 home-planets(maybe 4) and have colonized at least 10.
 
-他们有3个主星球(或许4个)而且克隆了至少10个星球.
+他们有3个主星球(或许4个)而且至少克隆了10个星球.
 
 They were one the first races to visit Earth.
 
-他们是最早访问地球的外形种族之一.
+他们是最早访问地球的外星种族之一.
 
 They were the race that started the "stories" about Fairies.
 
-他们曾经是有关小精灵"故事"开始的种族.
+关于小精灵的"故事"是由这个种族开始的.
 
 2 alien races claim that they have abducted over 10 million Humans throughout History(that number is highly disputed by 2 other races...they state that the number is highly lower...and 1 race even made a statement to Russian President saying that the race Lang has bever abducted any Human).
 
-2个外星人种族宣布到他们有绑架超过1000万人类在过去的历史中(这个数字被其它两个种族热度争议过...他们称述数字或高或低...而且1个种族甚至给俄罗斯总理陈述道Lang种族从来没有绑架过任何人类).
+有2个外星人种族声称他们在过去的历史中有绑架超过1000万个人类(其他两个种族对于这个数字有高度争议...他们称述数字或高或低...而且其中1个种族甚至给俄罗斯总理陈述道Lang种族从来没有绑架过任何人类).
 
 Last sighting: New Zealand,in 2006... a group of 20 members.
 
-最后目击:新西兰,2006年...20个人的群体.
+最后一次目击:在新西兰,2006年...有20个人的群体.
 
 * * *
 
@@ -1395,7 +1395,7 @@ They come from Planet Svokk,constellation Battteray.
 
 They ships have a conical shape.
 
-他们的飞船有一个圆锥体的形状.
+他们有一个圆锥体形状的飞船.
 
 They resemble Humans in appearance.
 
@@ -1403,19 +1403,19 @@ They resemble Humans in appearance.
 
 According to 1 alien race they only have 6 ships left.
 
-通过一个外形种族他们仅仅还留下6艘飞船.
+通过一个外星种族得知，他们仅留下6艘飞船.
 
 They colonized 20 planets,18 of them were inhabited.
 
-他们克隆了20个星球,其中的18个已经在栖息.
+他们克隆了20个星球,其中的18个已经在繁衍生息.
 
 They first visited Earth 2500 years ago and are very interested in our religious beliefs.
 
-他们第一次访问地球是在2500年前而且他们对我们的宗教信仰非常敢兴趣.
+他们第一次访问地球的时间是在2500年前，而且对我们的宗教信仰非常感兴趣.
 
 They are a race in decline ("weakening",according to other alien races.
 
-他们是一个在衰落的种族("弱化",相对于其它外星种族).
+他们是一个正在衰落的种族("弱化",相对于其它外星种族).
 
 * * *
 
@@ -1435,23 +1435,23 @@ They live underground and have popluation of 10 million.
 
 First visit to Earth:10.000 years ago.
 
-首次访问地球:10000年前.
+首次访问地球是在10000年前.
 
 They do not need  an atmosphere or water to survive.
 
-他们确实需要一个大气环境和水来生存.
+他们确实需要空气和水来生存.
 
 They have 1 ship that can accomodate 5 million of their kind.
 
-他们有一个飞船能容纳居住500万人口.
+他们有一个能容纳居住500万人口的飞船.
 
 They have had contact with Human governments throughout History.
 
-他们已经在历史长河中和人类政府有联系了.
+在历史上，他们已经与人类政府有联系了.
 
 Last known sighting:near Buenos Aires,Argentina,in 2003.
 
-上次已知的目击:靠近布宜诺斯艾利斯(阿根廷首都),2003年.
+上一次已知的目击:在靠近布宜诺斯艾利斯(阿根廷首都),2003年.
 
 * * *
 
@@ -1463,39 +1463,39 @@ GRAYSLI
 
 Their height averages the same as that of Humans and they are covered in a soft silky hair.
 
-他们的平均身高和人类差不多而且他们外表裹着一层柔软的银光色的毛发.
+他们的平均身高和人类差不多，而且他们的外表裹着一层柔软的银光色的毛发.
 
 They have 2 home-planets in the Virgo star system.
 
-他们有2个主星球在处女星太阳系统.
+他们在处女星太阳系统中有2个主星球.
 
 They have visited Earth at least 12 times.
 
-他们有访问过地球至少12次.
+他们至少有访问过地球12次.
 
 Their first visit happened during the era(dinasties) of Egypt's Pharaohs,around 3.000 years ago.
 
-他们头次访问发生在埃及法老纪元(朝代),大约3000年前.
+他们第一次访问是发生在埃及法老纪元(朝代),大约为3000年前.
 
 They spent 10 UN-interrupted years there during that time.
 
-他们花了连续不间断10年过来在那个年代.
+在那个年代，他们连续不间断地花了10年时间过来.
 
 The Djoser pyramid was built in their honour.
 
-塞尔金字塔为了他们荣耀所建.
+塞尔金字塔就是为纪念他们的荣耀而建.
 
 They have been keeping a close look at Human's development for the past 200 year,knowing that some powerful humans can (and are) be mislead by some alien races (disguised as "humans").
 
-他们一直有近距离查看人类的发展在过去的200年期间,已知的一些强大的人类能(且能)被误导经过其它外形种族(伪装为"人类").
+在过去的200年期间，他们一直对人类的发展保持密切关注,经过伪装成为"人类"，强大的人类自己也会(且能)被误导.
 
 Only 6 of them travel each time in their ships.
 
-仅仅他们当中的6个通过他们飞船太空旅行在每一段时间.
+在每次飞船太空旅行，他们当中仅有6个可以通过.
 
 Last sightings: July-2002 and February-2004
 
-最后目击:2002年-7月和2004年-2月.
+最后一次目击:2002年-7月和2004年-2月.
 
 * * *
 
