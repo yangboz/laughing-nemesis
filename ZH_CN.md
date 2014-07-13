@@ -1511,19 +1511,19 @@ They come from planet Nibirue (aka Nibiru).
 
 Their planet is part of the same solar system as Earth,but with a much longer orbit...it comes closer to the Sun every 4.000 years,and not every 3.500 years as commonly accepted.
 
-他们的星球是类似太阳系统中的地球一样,但是有更远的轨道...它每隔4000年更加靠近太阳,而且不是每隔3500年普遍认为的.
+他们的星球类似于太阳系统中的地球,但是有更远的轨道...它每隔4000年会更靠近太阳,而不是人们普遍认为的每隔3500年.
 
 They resemble Humans but are higher (2.5 meters/8') and more muscular.
 
-他们和人类相似但是更高(2.5米或者8英寸)而且更肌肉发达.
+他们和人类相似但是身高更高(2.5米或者8英寸)而且肌肉更发达.
 
 When they first visited Earth there were already other races established here...some malevolent and with supernatural powers.
 
-当他们头次访问地球的时候已经有其它外星种族在那建立了...一些有恶意的使用超自然的力量.
+当他们第一次访问地球的时候，已经有其它外星种族依靠恶意使用超自然的力量在那建立了基地.
 
 The Anunakene defeated them and became the most powerful race on Earth.
 
-Anunakene打败了他们然后成为最有权利的种族在地球上.
+Anunakene打败了他们然后在地球上成为最强大的种族.
 
 They genetically engineered the most intelligent non-alien beings on Earth (us...at the time not much more than smart primates) in order to have a race of slaves at their disposal.
 
@@ -1531,23 +1531,23 @@ They genetically engineered the most intelligent non-alien beings on Earth (us..
 
 At the time Samael and Lilith were the Annunakene King and Queen.
 
-在塞缪尔和李莉斯(古代闪族传说中的女妖；常出现在荒凉地带；袭击儿童；希伯来民间传说中亚当的第一个妻子)时代他们就是Annunakene国王和皇后.
+在塞缪尔和李莉斯(古代闪族传说中的女妖；常出现在荒凉地带；袭击儿童；希伯来民间传说中亚当的第一个妻子)时代他们就是Annunakene的国王和皇后.
 
 They were not aware of the presence of Reptilians on Earth.
 
-他们不担心在地球上的爬行军的存在.
+他们并不担心地球上的爬行军的存在.
 
 They only cooperate with one other race:the Zeta Reticulai.Not to be confused with the Solipsi Rai (aka "grays").
 
-他们仅仅和一个其它外形种族合作过:Zeta Reticulai.不是一直被混淆的Solipsi Rai (也就是"灰人").
+他们仅和一个叫Zeta Reticulai的其它外星种族合作过.不是之前一直被混淆的Solipsi Rai (即"灰人").
 
 Eventually they left Earth (unknown reasons) but before they left they created a sub-species of the Zeta...this specises eventually became rulers of Egypt (Pharaohs) until th Reptilians infiltrated them (as Temple Priests) and ended their Reign.
 
-最终他们离开来地球(原因未知)但是在他们离开之前他们创建了子种族在Zeta...这个种族最终成为埃及(法老)的领导者直到爬虫军渗透进来(作为神庙祭司)而且终结他们的统治.
+最终他们离开并来到地球(原因未知)，但在他们离开之前他们在Zeta创建了子种族...这个种族最终成为了埃及(法老)的领导者，直到爬虫军渗透进来(作为神庙祭司)且终结了他们的统治.
 
 They gave birth to the legends about "giants".
 
-他们产生了关于"巨人"的神话传说.
+他们创造了关于"巨人"的神话传说.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
@@ -1557,11 +1557,11 @@ ANUNAKENE(aka Anunnaki)
 
 They will return one day as promised by themselves,however the date of their return is still mystery.
 
-他们将来某天会回来像他们自己许诺的一样,然而具体的他们返回的日期仍然很神秘.
+他们将来某天会像他们自己许诺过的一样回来,但他们具体返回的日期仍是个谜.
 
 They do know all that is happening on Earth as well as in other planets where they had influence (and/or still have).
 
-他们确实知道所有的地球上发生的事情形同在其它星球他们所影响到的(亦或仍旧).
+他们确实知道所有发生在地球上的事情，就如同在其它星球上受他们影响而发生的事一样(亦或仍旧).
 
 The proximity of planet Nibirue (aka Nibiru) dose cause cosmic instability and weather-related repercussions in all planets of our solar system,but dose not cause the amount of destruction that it is usually accepted and believed.
 
@@ -1585,15 +1585,15 @@ They come from constellation Lyra.
 
 They call themselves "Afim Spiantsy" because of a war that they fought against a race called "Spiantsy"...the "Spiantsy" race had 12 times more members and 35 times more ships and resources than "Afim"...but the "Afim" won in the end...
 
-他们自称为"Afim Spiantsy"因为一场战争他们对抗的是一个外形种族名叫"Spiantsy"..."Spiantsy"种族有12倍成员和35倍多的飞船和资源也比"Afim"多...但是"Afim"最终还是赢了.
+因为一场战争，他们自称为"Afim Spiantsy"，他们对抗的是一个比他们有多达12倍成员和35倍飞船和资源的名叫"Spiantsy"外星种族，但最终"Afim"还是取得了胜利.
 
 So they added the "Spiantsy" name to their own race-name,as "warning" to other races...
 
-所以他们追加了"Spiantsy"名字到他们种族名后面以是"警告"其它外形种族...
+所以，他们追加了"Spiantsy"的名字在他们种族名后面，以示"警告"其它的外星种族...
 
 They are smaller than Humans in stature and their skin is covered with blue spot,darker for males and lighter in females.
 
-他们比人类更小在身高方面,他们的皮肤披裹着蓝色斑点,比男人更暗而且比女人更轻.
+在身高方面，他们比人类更小,他们的皮肤上披裹着蓝色斑点,男人身上的斑点颜色要比女人更深.
 
 They planet is called Crimea Ai-Petri.
 
@@ -1601,23 +1601,23 @@ They planet is called Crimea Ai-Petri.
 
 Technologically,they are extremely developed...they can travel from their planet to Earth in 20 earth-time.
 
-技术上来说,他们极度发达...他们能从他们星球访问到地球在20地球时间内.
+从技术层面上来说,他们极度发达...他们能在20个地球时间内从自己的星球来到地球.
 
 They do not need oxygen,they do have an atmosphere but it is composed mainly of an hydrogen-mix environment.
 
-他们不需要氧气,他们确实有大气环境但是主要是有氢混合的环境.
+他们并不需要氧气,他们确实需要有大气环境，但更主要是有氢混合的环境.
 
 They have colonized 10 planets in a non-violent way.
 
-他们克隆了10个星球以非暴力的方式.
+他们以非暴力的方式克隆了10个星球.
 
 When they are close to Humans they can become invisible,but humans when around them will feel a certain amount of unexplained anxiety.
 
-当他们靠近人类的时候他们能变得不可见,但是人类离他们很近的时候将能感觉到一股莫名奇妙的不安.
+当他们靠近人类的时候，会隐身变得不可见,但当人类离他们很近的时候，就会感觉到一股莫名奇妙的不安感.
 
 Their ships are small and spherical in shape.One of the reasons they visit us is to study what they call "Human Deviation",in order to determine the development of the Human race.
 
-他们的飞船很小而且是球体形状.其中一种他们访问我们的原因是学习他们称呼为的"人类多样化",为的是以测定人类种族的发展.
+他们的球体形状飞船很小，他们访问地球的其中一个原因是为了学习他们所谓的"人类多样化",其实为的就是测定人类种族的发展.
 
 * * *
 
@@ -1629,19 +1629,19 @@ SOLIPSI RAI
 
 Peaceful and harmonious race.
 
-和平和和谐的种族.
+和平和谐的种族.
 
 They 1 main leader and his name is Ymartyyn.
 
-他们1个主要领导人名字是Ymartyyn.
+他们有一个主要领导人名字是叫Ymartyyn.
 
 Their civilization is 2 billion years old...once they were at same level of development as ourselves.
 
-他们的文明已经有20亿年了...曾经一顿他们有我们的同样的发展水平.
+他们的文明已经有20亿年了...曾经一度，他们拥有与我们相同的发展水平.
 
 They have no colonized...they are completely focused on the development of other planets and races.
 
-他们没有克隆过...他们完全专注于发展其它星球和种族.
+他们没有克隆过任何星球...他们全力专注于发展其它的星球和种族.
 
 They come from constellation Cygnus.
 
@@ -1649,15 +1649,15 @@ They come from constellation Cygnus.
 
 They do have one powerful weapon that keeps some neighbouring violent races away...and others that may try to invade them...at one time race Maitre lost 5 ships because of it.
 
-他们有一个非常强大的武器能让其它邻居暴力外形种族远离...而且其它种族或许尝试过侵略他们...曾经一度Maitre种族丧失了5艘非常因为这事.
+他们有一个非常强大、能让其它暴力外星种族远离的武器...且其它的种族或许曾尝试过侵略他们...因为，Maitre种族曾一度丧失了5艘飞船.
 
 They said that the Human race,in the next few thousands of years,still have 650 options left to save ourselves,our planet and to guarantee a feature for our race...but it will all depend on our ability to travel through space.
 
-他们说到人类种族,在后续的几千年,仍旧有650个选项去拯救自我,我们的星球切被许诺为我们种族的未来...但是它也将依靠我们的能力去太空旅行.
+他们说到人类种族,在后续的几千年内,仍旧会有650个选项去拯救自我,我们的星球却被许诺为我们种族的未来...但是它也将依靠我们的能力去太空旅行.
 
 They are Solipsi Rai,but we call them..."grays"!
 
-他们是Solipsi Rai,但是我们称呼他们为..."灰人"!
+他们是Solipsi Rai,但是我们称呼他们为"灰人"!
 
 * * *
 
@@ -1669,19 +1669,19 @@ PUXHITY(no image)
 
 This race war very influential in some South and Central American culture.
 
-这个种族的战争对一些南部和中部美洲文化有非常大的影响.
+这个种族的战争对南部和中部的一些美洲文化有非常大的影响.
 
 At one time they had over 2.000 members living amongst Humans in those regions...until one day when most of them left,leaving behind only 25 of their own...Humans then killed them.
 
-曾经一度时间他们有超过2000个成员和人类居住在这些区域...直到一天当他们中大多数离开,剩下的只有25个他们当中一员...人类然后杀死了他们.
+曾有一段时间，他们有超过2000个成员和人类一起居住在这些区域里...直到有一天，当他们中的大多数选择离开,只剩下25个成员的时候，人类杀死了他们.
 
 They have not returned to Earth since that "incident".
 
-他们还没有返回到地球自动那次"事故"之后.
+自从那次"事故"之后，他们再也没有重返过地球.
 
 They were known to be very tall...some reports from one alien race say that some of them were as tall as 4 meters high(13').
 
-他们被认为非常高大...一些报道从一个外形种族说到他们中一些身高能到4米(13英寸).
+据说他们非常高大...从一些报道中得知，有另一个外星种族说他们中有些身高能到4米(13英寸).
 
 The reasons why the local Humans killed the 25 Puxhity's is unknown.
 
@@ -1697,23 +1697,23 @@ X5-TYKUT
 
 This race was created by the race Maitre in order to be used as slaves...and that is still what they serve for.
 
-这个种族是被Maitre种族创建为的是用来作为奴隶...而且一直到现在他们还在服务中.
+该种族为Maitre种族创建，为的是用来作奴隶使唤...而且一直到现在他们还在为Maitre服务.
 
 They are often sent by the Maitre to security-sensitive regions,working as  messengers and also to conduct abductions.
 
-他们经常被Maitre派遣去安全敏感区域,工作为信使和同时实施绑架.
+他们经常被Maitre种族派遣到安全敏感区域去作为信使，同时也实施绑架.
 
 They can live forever as they are not organic...however the raw materials that the Maitre need to "build" one are very rare. So there are not many of them (estimation: less than 300).
 
-他们能活到永久就像他们不是器官组成的...然而Maitre所需要的原材料需要去"建造"之一非常稀罕.因此他们的数量不是很多(评估:少于300).
+他们身体内部不是由器官组成的，所以他们不会有死去的一天...然而Maitre需要的原材料之一非常稀罕，需要去"建造".因此他们的数量并不是很多(评估:少于300).
 
 They are able to use "rational thinking" as well as flying ships and many other tasks.
 
-他们能使用"推理思考"诸如驾驶飞船和很其它任务.
+他们会使用"推理思考"，诸如驾驶飞船和其它任务.
 
 Last seen on Earth in July-1997,near Brisbane,Australia.
 
-最后一次目击在地球是1997年7月,靠近布里斯班(澳大利亚地名).
+最后一次目击是在地球，1997年7月,靠近布里斯班(澳大利亚地名).
 
 * * *
 
@@ -1729,7 +1729,7 @@ They come from constellation Perseus,near the star Gorgonea Secunda.
 
 They have caused thousands (maybe millions) of deaths on Earth and other planets as one of their interests (or area of "study") is how other races react to tragedies and cataclysms.
 
-他们导致了成千(或许上万)的死亡事件在地球和其它星球由于他们爱好之一("研究"领域)就是其它种族对悲剧和灾难的反应.
+由于他们的爱好之一是“研究”其它种族对悲剧和灾难的反应，所以他们在地球和其它星球上导致了成千(或许上万)的死亡事件.
 
 Technologically they are extremely advanced.
 
@@ -1737,7 +1737,7 @@ Technologically they are extremely advanced.
 
 One alien race reported that they (the Tanzany) caused both the crashing of the Hindenburg as well as the sinking of the Titanic.
 
-一个外星种族报道到他们(the Tanzany)导致了兴登堡(波兰南部城市扎布热)飞艇坠毁和泰坦尼克号(船名)沉没.
+某个外星种族报道到他们(the Tanzany)导致了兴登堡(波兰南部城市扎布热)飞艇的坠毁和泰坦尼克号(船名)的沉没.
 
 They can live up to 500 years and are around 1.7 meters tall (5').
 
@@ -1745,11 +1745,11 @@ They can live up to 500 years and are around 1.7 meters tall (5').
 
 They are avoided by other alien races.
 
-他们尽量避免其它种族.
+他们尽量避免和其它种族接触.
 
 Last sighting:January 1999 in New York state.
 
-最后目击:1999年1月在纽约州.
+最后一次目击:在1999年1月在纽约州.
 
 * * *
 
@@ -1765,15 +1765,15 @@ They come from constellation Ophiuchus,near YedPrior.
 
 Considered by other races as peaceful.
 
-被其他种族看认为非常和平.
+被其他种族认为非常和平.
 
 The purpose of their visits is unknown...they never stay long on Earth and do not interact with Humans or other aliens here.
 
-他们到访的目的未知...他们从没长久待在地球上而且没有和人类和其它外形种族有交往.
+他们到访地球目的未知...他们从没有长久地待在地球上且没有和人类和其它外形种族有交往.
 
 They mostly use Earth as a "stop" (to quickly gather something they may need)before they leave to their real destination.
 
-他们大多数使用地球作为一个"经停站"(为了快速收集一些他们需要的东西)在他们离开之前去到达真正的目的地.
+在他们离开地球去到真正目的地之前，他们大多将这里作为一个"经停站"(为了快速收集一些他们需要的东西).
 
 They are mostly nocturnal.
 
@@ -1781,11 +1781,11 @@ They are mostly nocturnal.
 
 Their ships emit a bright-orange light and are (most of them,not all) octogonal in shape.
 
-他们的飞船发射一种亮黄的灯光而且(大部分他们,不是所有)外形上是八边形.
+他们的飞船能发射出一种亮黄的灯光而且(他们中的大部分,不是所有)外形上是八边形.
 
 Last spotted near London(England) in May 2003.
 
-最后一次报道靠近英国伦敦在2003年5月.
+最后一次报道是在靠近英国伦敦，2003年5月.
 
 * * *
 
@@ -1801,15 +1801,15 @@ They come from constellation Pavo.
 
 They a very respected and peaceful race presumably with mystical powers.
 
-他们被看作为非常尊敬和和平的种族推测有神秘能量.
+他们非常受尊敬，被推测为具有神秘能量的和平种族.
 
 They have been coming to Earth at least since 1.000 AD.
 
-他们到达过地球至少是公元前1000年.
+他们至少在公元前1000年就到达过地球.
 
 They do not carry out abductions and do not interact with Humans.
 
-他们不实施绑架和与人类交往.
+他们不实施绑架，与人类和平交往.
 
 They can live up to 2.000 years.
 
@@ -1825,7 +1825,7 @@ They are vegetarians.
 
 Last sighting:near Odessa,Ukraine in July of 1995.
 
-最后目击:靠近奥德萨,乌克兰1995年7月.
+最后一次目击:靠近奥德萨,乌克兰1995年7月.
 
 * * *
 
@@ -1841,7 +1841,7 @@ They come from constellation Ursa Minor.
 
 Stroms are invertebrates and coelenterates.
 
-风暴是无脊椎动物和腔肠动物.
+Stroms是无脊椎动物和腔肠动物.
 
 Their average height is 2 meters(6.5').
 
@@ -1849,23 +1849,23 @@ Their average height is 2 meters(6.5').
 
 Vegetation is of great importance to their culture...and the main reason for their visits to Earth.
 
-植物对他们的文化来说非常重要...而且也是他们访问地球的主要原因.
+在他们的文化中，植物十分重要，这也是他们访问地球的主要原因.
 
 They have been on Earth at least 200 times. They act with extreme caution and are rarely seen by Humans.
 
-他们有访问过地球至少200次.他们行动及其小心而且很少被人类发现.
+他们至少有访问过地球200次.他们的行动极其小心且很少被人类发现.
 
 First visited Earth at the end of the last big Ice Age.They have 20 colonies in the Via Lactea galaxy.
 
-首次访问地球是在大冰河时代的结束.他们有20个克隆星球在银河星系中.
+首次访问地球的时间是大冰河时代结束的时候.他们在银河星系中有20个克隆星球.
 
 They ships have the shape of an octagon.
 
-他们的非常有一个八角形形状.
+他们的飞船有一个八角形形状.
 
 Last sighting:October 1976 in Oregon,USA
 
-最后目击:1976年10月，俄勒冈(美国州名)
+最后一次目击:1976年10月，俄勒冈(美国州名)
 
 * * *
 
@@ -1885,11 +1885,11 @@ They have colonized 3 planets and have a life span of 150 years.
 
 They are often sighted in northern Africa and the Sahara region.
 
-他们经常被目击在北美和撒哈拉区域.
+他们经常在北美和撒哈拉区域被目击.
 
 First visited Earth around 300 BC.
 
-首次访问地球大约在公元前300年.
+首次访问地球大约是在公元前300年.
 
 They do not conduct abductions.
 
@@ -1897,11 +1897,11 @@ They do not conduct abductions.
 
 Main interest about Earth:minerals.
 
-主要的兴趣在地球上是:矿产.
+在地球上主要的兴趣是矿产.
 
 Last sighted in 2003 near a volcano in Iceland.
 
-最后目击是在2003年靠近冰岛的某火山.
+最后一次目击是在2003年，靠近冰岛的某火山.
 
 * * *
 
