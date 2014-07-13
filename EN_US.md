@@ -2001,3 +2001,37 @@ AND HOW SOME LOOK FROM ABOVE
 ![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians-RUSSIA_AGENT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians.png)
 
 THE DAY HUMANS KILLED REPTILIANS
+
+In 856 BC,in the region of (now) Udmurtia,Russia,there was a confrontation bewteen Humans and Reptilians.
+
+Reports state that a colony of Reptilians were building an underground base in the area.The Humans that lived in the area wrote:
+
+"Thunder by day,lightening at night...the earth shakes like in the days of old again...the snakes are everywhere,flying low and causing all creatures to die...the fish are gone and the rivers dry...we must fight or we will die."
+
+A member of the TENGRI-TENGRI,when asked by a Human leader(in the 20the century)if we Humans would ever have a "fighting chance" at defeating the Reptilians,said:
+
+"Your ancestors from ancient Slaviae using not much more then stones and sticks defeated them once already...since then you have learned much and done much...but you have lost your courage..."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The TENGRI-TENGRI did say that there's a rumor that the Humans did not act alone against the Reptilians...that they had an alien race helping them "behind the curtains"...However they also said that in the moment of battle supposedly there were only Humans fighting,not aliens.Either way,it shows what Humans can do and that "nothing is lost"...
+
+For posterity those Humans made these works of Art,a reminder of a great day for their culture...
+
+One thing though:the story goes that  200 years later that culture simply vanished...
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion.png)
