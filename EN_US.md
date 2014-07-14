@@ -2103,3 +2103,81 @@ In 2003 crystals with strange symbols,inscriptions and holes were found in the T
 The CHULKAE(as aliens call them) are NOT an alien race as commonly accepted for many years by different APIS.
 
 Alien also do not know how they evolved or where they came from.
+
+The only things we know about them are:They exist in all continents,they live underground and are mostly nocturnal,they have a stuctured society(leaders and social classes),they have a culture indentity and supposedly they can live up to 250 years.
+
+None was never captured alive... ![Screenshot of "Alien_Files_CHULAKAE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_01.png)
+
+![Screenshot of "Alien_Files_CHULAKAE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_02.png)
+![Screenshot of "Alien_Files_CHULAKAE_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CASE_34-8-NB"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_34-8-NB.png)
+
+CASE 34-8-NB
+
+Illichivsk(ODESSA)-UKRAINE
+
+In October-2-1947 a confirmed Maitre landing happened...2 days later 12 sailors(on a fishing boat) disappeared.
+
+In 1982 one of the missing sailors (a Mr.Kyrylo,in 1947 only 16 years old) showed up in Maardu,Estonia.
+
+He reported that he had been "in the Moon".
+
+He died in 1983 from a self-inflicted wound.
+
+On his chest he carved (whith a knife) the following:
+
+"SS Waratah...they are still waiting..."
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CASE_556-9-IOP"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_556-9-IOP.png)
+
+CASE 556-9-OP(Oregon)
+
+HMS Sickle was a submarine of the Royal Navy.
+
+In June 12 of 1944 went missing while on patorl in the northern Agean...
+
+One member of the crew was found in 1971 near Bend,Oregon.
+
+In 1984 the became an advisor to USA President Ronald Reagan and he was often seen in the company of Minnesota Governor Harold Stassen.
+
+As far as we have been informed he is still alive.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_USA_politicians_connect_Reptilians"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_USA_politicians_connect_Reptilians.png)
+
+LIST OF AMERICAN POLITICIANS WITH CONNECTIONS TO THE REPTILIANS (confirmed)
+
+- Former U.S. Secretary of Defense Donald Rumsfeld
+
+- Former vice-President Dick Cheney
+
+- Former President George H.W.Bush
+
+- Former President George W.Bush
+
+- Former Secretary of State Heny Kissinger
+
+- Former President Bill Clinton
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
