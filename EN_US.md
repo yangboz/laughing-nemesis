@@ -2054,7 +2054,7 @@ Here's the version of events that lead to the explosion...as told by a member of
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.png)
+![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.jpg)
 
 "For 5 days and 4 nights,near what you call Tunguska,the MAITRE had been fighting the DORSAY.
 
@@ -2181,3 +2181,28 @@ LIST OF AMERICAN POLITICIANS WITH CONNECTIONS TO THE REPTILIANS (confirmed)
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
+ALIEN SHIPS
+
+![Screenshot of "Alien_Ships_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_INDUGUTK_ON_THE_MOON"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_INDUGUTK_ON_THE_MOON.png)
+
+![Screenshot of "Alien_Ships_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_SMAD.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_01.png)
+
+![Screenshot of "Alien_Ships_Unkown_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
