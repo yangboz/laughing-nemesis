@@ -2284,3 +2284,59 @@ ALIEN SHIPS
 ![Screenshot of "Alien_Ships_Unkown_13"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_13.png)
 
 ![Screenshot of "Alien_Ships_Unkown_14"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_14.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_15"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_15.png)
+
+![Screenshot of "Alien_Ships_Unkown_16"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_16.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE.png)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE_01.png)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK.png)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK.png)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_SMAD_01.png)
+
+![Screenshot of "Alien_Ships_PURITAV-ILLUMU"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PURITAV-ILLUMU_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_17"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_17.png)
+
+![Screenshot of "Alien_Ships_Unkown_18"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_18.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_19"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_19.png)
