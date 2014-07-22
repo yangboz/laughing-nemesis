@@ -2574,3 +2574,26 @@ THESE STATEMENTS DO NOT EXPRESS THE OPINION OF ALL ALIEN RACES ON ANY OF THE MEN
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 THE NOTES & UPDATES
+
+![Screenshot of "Notes_and_updates_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Notes_and_updates_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+"The Kurs showed up again...washington,DC"
+
+"The Kurs are not supposed to be here...what is going on?"
+
+"Pleyadiyans in bora-bora...APIS Russia and USA ignored them...again!"
+
+"Why did the Maitre accepted guilt for 2000?"
+
+"More planes are being ready for 2017..."
+
+"Bush will do what Bush is told...like the one's before him"
+
