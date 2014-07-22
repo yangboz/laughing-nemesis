@@ -2597,3 +2597,71 @@ THE NOTES & UPDATES
 
 "Bush will do what Bush is told...like the one's before him"
 
+"3 more economies destoryed...why don't people see it??"
+
+"In August-2013,USA,try Alfalfa Market Road in Oregon"
+
+"Want to see? watch:54.7371 N,55.9667 E - Auguest 27"
+
+"JFK had DNA from the First race!!!!!! Call Yakim-3 !!!"
+
+"Why did they chose Putin to start the avalanche?"
+
+"The black will be white and the yellow will be red"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+(NOTE FROM MYSELF AND PETRO)
+
+THESE ARE SOME OF THE HAND WRITTEN NOTES AND UPDATES FOUND ON THE ALIEN RACES BOOK PAGES.
+
+THERE ARE LITTERALLY HUNDREDS OF THEM ...ABOUT 3 OR 4 IN EACH PAGE.
+
+WE CHOSE THE ONE'S THAT WE DEEMED MORE RELEVANT...
+
+OTHERWISE THIS PUBLICATION WOULD HAVE THOUSANDS OF PAGES...
+
+WE MAY ONE DAY PUBLISH ALL NOTES.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+"AS Napoleon,Alexander and Hilter did,so will the rest"
+
+"How blind are people that they cannot see what's in the Grand Canyon?"
+
+"Connect London,Berlin and Cairo..."
+
+"2 km's south from the Vatican...small pink house...always for rent,never rented...they keep it there"
+
+"Charola dos Templarios..."
+
+"Why do Australian Humans do not seen September 23?"
+
+"Caravaggio has it"
+
+"The Pope and Castro met again last week...with Maitre"
+
+"The States are loosing ground now..."
+
+"Funny...Putin using Medvedev in front of everyday...ha ha ha!!!"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+SHE
+
