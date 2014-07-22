@@ -2665,3 +2665,26 @@ WE MAY ONE DAY PUBLISH ALL NOTES.
 
 SHE
 
+![Screenshot of "Book_Cover_SHE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_cover.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Ever since Humans and aliens started cohabiting Earth,the main question Humans wanted answer was:
+
+"Who created the Universe and all of us?"
+
+![Screenshot of "SHE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_01.png)
+
+That question has been answered the same exact way by all the alien races that have spoken about it...
+
+The answer to that question has been sent several times,by 2 different races,to ALL Human religious leaders thorughout the centuries...
+
+The answer to that question has been sent several times,by 2 different races,to SOME Human political leaders throughout the centuries...as far as we know the last of those leaders to get the message was USA President JFK in October 3,1963.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+THE MESSAGE WAS SENT BY THESE 2 RACES
