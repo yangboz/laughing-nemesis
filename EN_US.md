@@ -2888,3 +2888,15 @@ LIST OF POPES TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
 LIST OF ISLAMIC LEADERS TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
 
 ![Screenshot of "SHE_09"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_09.png)
+
+- Allamah Majlisi Sani,1690
+
+- Ibrahim al-Fayyumi,in 1725
+
+- Mustafa al-Arusi,1864
+
+- Mustafa al-Maraghi,1935
+
+- Gad al-Haq,1982
+
+![Screenshot of "SHE_10"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_10.png)
