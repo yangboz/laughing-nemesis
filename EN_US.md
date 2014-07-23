@@ -2688,3 +2688,97 @@ The answer to that question has been sent several times,by 2 different races,to 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 THE MESSAGE WAS SENT BY THESE 2 RACES
+
+![Screenshot of "SHE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_02.png)
+
+THE MESSAGE IS BOTH SIMPLE AND COMPLEX...
+
+INFORMATIVE BUT RASING QUESTIONS...
+
+OF HOPE BUT ALSO OF WARNING...
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_02.png)
+
+AND THIS IS THE MESSAGE:
+
+"This is a message of disambiguation to all of you men of the Human Kind.
+
+This is a message of redirection to all of you of the Human Kind.
+
+This is a message to enliven the minds of you men of the Human Kind.
+
+This is  a message that has been delivered from race to race since the Begining...just like it was delivered to us,it is now passed to you...
+
+Where there was no men of the Human Kind there were others of other kinds....
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+This is a message to you as well,Women of the Human Kind.
+
+Only the First race has Her purity...
+
+All other race must live the grievous,patient and laborious process of spiritual inner discovery and progression.
+
+Your (Our) collective History and Memory has suffered much in the Past...it has been erased,manipulated,suffocated,shifted,changed and molded according to the interests of a few.
+
+On your Planet as well as on Ours and the one's of other kinds in the Past...
+
+To the leaders of Kindoms and Countries and Regions:look at your religious leaders...
+
+To the religious leaders:look at yourselves and the one's like you,leaders of other religions,and over your Planet...
+
+Why do you wear your long robes and skirts,and all manners of Symbols that you do not understand?
+
+Why do you,religious leaders,men of the Human Kind,were your long robes and skirts not knowing why?
+
+Who,men of the Human kind,are you trying to be?
+
+Who,men of the Human kind,are you trying to represent?
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_03.png)
+
+this page (and images) is not original to the book.It was added by myself and Petro to serve as an illustration.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+You,religious men of the Human Kind,and you,leaders of Kindoms and Countries and Regions,men of the Human Kind,have slowed your spiritual progress in half because you have divided your kind in half...
+
+No men of the Human Kind should destory what the women of the Human Kind have created.
+
+You have for many of your years relegated the women of the Human Kind to the role of slaves.
+
+And before your kind,many other kinds have done that...and before your kind,men of the Human Kind,many other kinds we have warned.
+
+For you to achieve what Yours,for you,Men and Women of the Human Kind,to be closer to Her,you must become one kind.
+
+![Screenshot of "SHE_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_04.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
