@@ -2900,3 +2900,39 @@ LIST OF ISLAMIC LEADERS TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
 - Gad al-Haq,1982
 
 ![Screenshot of "SHE_10"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_10.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+FINAL THOUGHTS
+
+![Screenshot of "FINAL_THOUGHTS_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The future of the Human race is NOT in our hands at this point in time...one day it might be.
+
+All that we,real Humans,can do right now is to gather all the information we can about these alien races and their habits,to find out about their weaknesses and strenghts,so that when our future becomes our responsability we can be prepared  to fight for it if needed.
+
+Today we are just mere spectators watching a "theatre play"...some of us are watching the "play" completely unware that what we are watching is real...the actors (aliens) are real...the "play" (story-line) is real...the "stage" and "props" (alien worlds,alien ships and odd cosmic events) are real...
+
+Othe know that what they are watching  is real...but there's nothing that they can do about it...they cannot change the "play"...and certainly they cannot go to another "theatre" where the "play" is more of their liking...the only thing they can do is watch!
+
+Others (like you,me,your companion agents and a few more world wide) are spectators taking "notes" about what is in front of them...about the "play",about the "actors" and about the "setting" and "props"...we are learning about and writing about everything we see...so that one day when we have an opportunity to change the "story-line",we are prepared to do so...
+
+But beware...amongst the spectators there are many that are not paying attention to the "play" !
+
+They are only watching the other "spectators" around them,specially the one's "talking notes"...and those spectators look just like you and me...they can be seated right beside you...sometimes they even are the one's that gave you the ticket for the "play"...and sometimes they are your own parents!
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LATEST UPDATE TO THE BOOK (added by myself)
+
+![Screenshot of "FINAL_THOUGHTS_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_01.png)
