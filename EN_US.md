@@ -2835,3 +2835,56 @@ And the answer, men and women of Human Kind,has been the same to all kinds...in 
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
+Some accept it,others don't...but the answer is only one:She!
+
+It has been this way from the begining and it will be this way,men and women from the Human Kind,until the end...
+
+It has been this way here and in all 4 universes and dimensions.
+
+"She" has many names...and many faces...and lives in many places..."She" is the Creator,NOT the destoryer...
+
+In your planet She was and it is called Diana...or Goddess Diana...in our planet she was called Alixi...
+
+She was also called (on other Planets) Lexae,Lixae,Dixae and Tixae...
+
+To you,of the Human Kind,she will always be Goddess Diana.
+
+"Search" for Her,learn of and from Her...She is the TRUTH,the Light,the Begining and but never the End,the Creator and never the Destoryer...The ONE all of us came from.
+
+And learn from your legendary Greek "Gods" of old...as they all did exist...as you exist and we exist.
+
+And we are one...and She is the One!
+
+SHE is the One that you,religious men from the Human Kind,lost in your robes and memory,want to be and try to replicate ...
+
+Men of the Human Kind:learn from Her...the Creator!"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_07"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_07.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LIST OF POPES TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO 
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+![Screenshot of "SHE_08"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_08.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LIST OF ISLAMIC LEADERS TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
+
+![Screenshot of "SHE_09"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_09.png)
