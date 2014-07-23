@@ -2782,3 +2782,56 @@ For you to achieve what Yours,for you,Men and Women of the Human Kind,to be clos
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+Like many kinds before you,Men and Women of the Human Kind,you have a journey of restraint and constriction ahead of you...a journey of diffculty and resistance.
+
+But,unlike many kinds before yours,you are on a path of spiritual self destruction never experienced or self provoked by the other kinds before...
+
+And yet,you are so young...
+
+The Anunakene created you...but many kinds can destory you.
+
+You have 2.000 more(of yours) years to change...after that,men of Human Kind,it will be too late.
+
+Not too late for your survial BUT too late for your salvation !
+
+Your spiritual salvation...
+
+The "Council of 5" can only keep you safe from other kinds,NOT from yourselves...
+
+![Screenshot of "SHE_05"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_05.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+And we know that you have been betrayed,mislead and mistreated...
+
+And we know that after thousands of (your) years,by means of infiltration,disguisement and deception,you,men of Human Kind,have been fooled to believe the unacceptable by races that do not wish you well...
+
+But,before you,many other kinds suffered the same...and they too overcomed what seemed impossible to overcome...
+
+Your strength is inside of you and all around you...even now !
+
+Your strength is in Her...and She is inside YOU,men and women of the Human Kind...even now !
+
+And the answer is the place that you,Human-Kind,call Greece.
+
+And the answer is She...Artemis,Diana.
+
+And the answer have always been Her..
+
+And the answer, men and women of Human Kind,has been the same to all kinds...in all places!
+
+![Screenshot of "SHE_06"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_06.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
