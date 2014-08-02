@@ -13,7 +13,7 @@ THE ALIEN RACES BOOK
 * FINAL THOUGHTS
 
 
-Localization
+Translation
 ================
 
 EN_US: (https://github.com/yangboz/laughing-nemesis/blob/master/EN_US.md)
