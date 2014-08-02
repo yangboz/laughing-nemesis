@@ -1729,6 +1729,9 @@ From the 700 AD to the 19th century AD over 50 battles between alien races were 
 
 ![Screenshot of "Alien_Files_18thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_18thCentury_battles.png)
 
+18th century
+
+
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
@@ -1928,7 +1931,7 @@ Our agents estimate that near 65% of all aliens and UFO related websites on the 
 
 In the case of USA-only websites that number jumps to 83% and in Europe to 70%.
 
-In the USA 35% of those websites are ran by the USA,30% by the CIA,15% by the military,10% by APIS-USA,5% by the FBI and the rest by unkown government agencies.
+In the USA 35% of those websites are ran by the USA,30% by the CIA,15% by the military,10% by APIS-USA,5% by the FBI and the rest by unknown government agencies.
 
 In Russia that number is around 33%.
 
