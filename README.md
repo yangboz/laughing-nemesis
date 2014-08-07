@@ -30,7 +30,7 @@ http://www.skymaponline.net/ConstellationList.aspx
 
 http://bayimages.net/blog/articles/creating-photo-books-in-ibooks-author/
 
-Free ISBN
+ISBN
 ================
 
 http://www.createspace.com
