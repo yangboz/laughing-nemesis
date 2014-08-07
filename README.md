@@ -33,4 +33,9 @@ http://bayimages.net/blog/articles/creating-photo-books-in-ibooks-author/
 Free ISBN
 ================
 
-http://createspace.com
+http://www.createspace.com
+
+ISBN-13: 978-1500769413 
+
+ISBN-10: 150076941X 
+
