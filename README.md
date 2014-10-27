@@ -21,7 +21,7 @@ EN_US: (https://github.com/yangboz/laughing-nemesis/blob/master/EN_US.md)
 ZH_CN: (https://github.com/yangboz/laughing-nemesis/blob/master/ZH_CN.md)
 
 
-iOS App refs
+iBooks refs
 ================
 
 http://ogleearth.com/2007/12/google-sky-api-early-usage-examples/
@@ -29,6 +29,8 @@ http://ogleearth.com/2007/12/google-sky-api-early-usage-examples/
 http://www.skymaponline.net/ConstellationList.aspx
 
 http://bayimages.net/blog/articles/creating-photo-books-in-ibooks-author/
+
+http://unwireme.com/visual-guide-to-self-publishing-on-itunes-how-to-publish-an-ibook/
 
 ISBN
 ================
