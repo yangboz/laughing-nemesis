@@ -32,6 +32,8 @@ http://bayimages.net/blog/articles/creating-photo-books-in-ibooks-author/
 
 http://unwireme.com/visual-guide-to-self-publishing-on-itunes-how-to-publish-an-ibook/
 
+http://bayimages.net/blog/articles/creating-photo-books-in-ibooks-author/
+
 ISBN
 ================
 
