@@ -37,11 +37,11 @@ CONTENTS
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
-INTRODUCTIONS TO THE ALIEN BOOKS 
-外星人书籍介绍
+INTRODUCTIONS TO THE ALIEN RACES BOOK 
+外星人种族书籍介绍
 
 THE ALIEN RACES BOOK
-外星人书
+外星人种族书籍
 
 
 * THE ALIEN RACES
