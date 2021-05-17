@@ -1,38 +1,38 @@
 ![Screenshot of "Original_Book_Cover"](/assets/images/Original_book_cover.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](/assets/images/ARB_DS_EYE.jpg)
 
 
 CONTACT ME @
 ================
 
-![Screenshot of "ARB_Contact_me"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_Contact_me.jpg)
+![Screenshot of "ARB_Contact_me"](/assets/images/ARB_Contact_me.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
 
 INTRODUCTION TO THE ALIEN RACES BOOK
 ================
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "Book_Cover_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
+![Screenshot of "Book_Cover_00"](/assets/images/Alien_Race_Conver_00.jpg)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
 
 CONTENTS
 ================
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
 
 INTRODUCTIONS TO THE ALIEN BOOKS 
 
@@ -48,10 +48,10 @@ THE ALIEN RACES BOOK
 * SHE
 * FINAL THOUGHTS
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](/assets/images/ARB_DS_Mark.jpg)
  
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](/assets/images/ARB_DS_EYE.jpg)
 
 * * *
 
