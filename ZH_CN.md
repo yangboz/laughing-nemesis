@@ -9,33 +9,33 @@ CONTACT ME @
 联系我 @
 ================
 
-![Screenshot of "ARB_Contact_me"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_Contact_me.jpg)
+![Screenshot of "ARB_Contact_me"](https://a.knighter.xyz/assets/images/ARB_Contact_me.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 
 INTRODUCTION TO THE ALIEN RACES BOOK
 本书介绍
 ================
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "Book_Cover_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
+![Screenshot of "Book_Cover_00"](https://a.knighter.xyz/assets/images/Alien_Race_Conver_00.jpg)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 
 CONTENTS
 大纲
 ================
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 INTRODUCTIONS TO THE ALIEN RACES BOOK 
 外星人种族书籍介绍
@@ -61,10 +61,10 @@ THE ALIEN RACES BOOK
 * FINAL THOUGHTS
 最终想法
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
  
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 * * *
 
@@ -104,7 +104,7 @@ Some papers(documents) were in Russian... some were even from the USSR times.
 
 在这些旧文档里面，有些是俄文，有些甚至来自苏联时代.
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 
 Petro started reading/translating some of them and we realized that there was a lot of interesting,intriguing and even top-secert (at least at one time) documents!
@@ -143,7 +143,7 @@ He still gets regular updates that transmits to me.
 
 他一直保持正常更新且传送给我.
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 The book has hundreds of side-notes on the pages(updates),small papers with related miscellaneous info attached to pages,photos stapled to them,etc...that is how we found out about relatively recent visits from aliens,their numbers,where it happened,etc...they had been updating the information they could get regularly.
 
@@ -201,7 +201,7 @@ Also,some of the photos on the ARB,had been tampered with...
 
 同时,在ARB中的一些照片,被篡改过通过...
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 And so,there you have it...the "story" behind the ALIEN RACES RUSSIAN SECERT BOOK!
 
@@ -215,21 +215,21 @@ I hope you enjoy the book and all the revelations contained in it.
 
 我希望你能愉快阅读此书以及书中所有相关的内容.
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 this book is dedicated to the memory of PETRO
 
 此书献给PETRO以作留念.
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 The ARB book has been re-editd(information always being updated in all aspects,from new alien races to new reports and photos or illustrations) at least 12 times. That we know the first edition was printed in 1946 or early 1947.Then new editions were printed:1951(Ihave the cover,just the cover,of that one),1959,1968,1971,1980...all the way to (we believe)2011.
 
 此ARB书被重新编辑过(信息经常被更新包括所有方面,从新的外星人种族到新的报道和照片或者素绘)至少12次.我们知道的第一版本印刷时间是在1946年或1947年之间.然后新的版本有1951年(我有封面,就只有此版本的封面),1959,1968,1971,1980...我们确信一直到2011.
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "THE_LOST_COPY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/THE_LOST_COPY.jpg)
+![Screenshot of "THE_LOST_COPY"](https://a.knighter.xyz/assets/images/THE_LOST_COPY.jpg)
 
 THE LOST COPY 
 
@@ -259,15 +259,15 @@ Years later the information and some of the images started apprearing in TV seri
 
 (这些信息是书中手写部分)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 In 1924,near Yekaterinoslav,Ukraine (now Dnipropetrovsk) the 3 daughters of a certain Captain Andriychuk simply vanished.
 
 1924年,在靠近乌克兰叶卡捷琳诺斯拉夫(现在第聂伯罗彼得罗夫斯克)的地方，一位名叫安德烈丘克队长的三个女儿毫无预兆地凭空消失了.
 
-![Screenshot of "LOCATION_Dnipropetrovsk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
+![Screenshot of "LOCATION_Dnipropetrovsk"](https://a.knighter.xyz/assets/images/LOCATION_Dnipropetrovsk.jpg) ![Screenshot of "LOCATION_Dnipropetrovsk_gray"](https://a.knighter.xyz/assets/images/LOCATION_Dnipropetrovsk_gray.jpg)
 
-![Screenshot of "Captain_Andriychuk"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Captain_Andriychuk.jpg) Captain Andriychuk was of Russian descent and very little is known about him,except that he travelled a lot.
+![Screenshot of "Captain_Andriychuk"](https://a.knighter.xyz/assets/images/Captain_Andriychuk.jpg) Captain Andriychuk was of Russian descent and very little is known about him,except that he travelled a lot.
 
 我们只知道安德烈丘克队长是苏联家氏中的一员，对他本人知之甚少,除了知道他到过很多地方旅游.
 
@@ -287,13 +287,13 @@ According to him the "windmill" then flew very slowly "into the stars" until he 
 
 利用他的"风车"缓慢地向"至群星"飞去，直至他看不见.
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 According to the farmer,he ran to Captain Andriychuk's house to warn him about the event.
 
 农夫马上向安德烈丘克队长的家跑去并告诉他刚才所见的一切.
 
-![Screenshot of "Suppose_farmer's_home"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_farmer's_home.jpg) This photo supposedlly shows the farmer's house.
+![Screenshot of "Suppose_farmer's_home"](https://a.knighter.xyz/assets/images/Suppose_farmer's_home.jpg) This photo supposedlly shows the farmer's house.
 
 这个照片可假设为农夫的房子.
 
@@ -321,11 +321,11 @@ It said:
 
 "我们要和朋友们去月亮上学了..."
 
-![Screenshot of "Suppose_photo_of_Sofiya"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
+![Screenshot of "Suppose_photo_of_Sofiya"](https://a.knighter.xyz/assets/images/Suppose_photo_of_Sofiya.jpg) supposed photo of Sofiya(not confirmed)
 
 假设这是索菲亚的照片(待确认)
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 TO:
 
@@ -359,13 +359,13 @@ Make use of your extensive trainning and love for our great Union.
 
 确保发挥你的专业技能和博爱精神并忠于我们伟大的联盟.
 
-![Screenshot of "Chief_Marshal_"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Chief_Marshal_.jpg) Chief Marshal Konstantin A. Vershinin 1947
+![Screenshot of "Chief_Marshal_"](https://a.knighter.xyz/assets/images/Chief_Marshal_.jpg) Chief Marshal Konstantin A. Vershinin 1947
 
 上将Konstantin A. Vershinin 1947
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 The book of alien races is both an instructions manual and a source of information to be used now and in the feature until the day it will be needed no more.Learn from it and added to it.
 
@@ -403,7 +403,7 @@ When with Aliens:
 
 3 - 向他们学习
 
-![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 YOUR ARE FORBIDDEN OF:
 
@@ -413,19 +413,19 @@ SHOWING THIS BOOK TO ANYONE,TALKING ABOUT THIS BOOK TO ANYONE,TALKING ABOUT OR R
 
 把这本书和你的调查内容展示给任何人,随意与人谈论此书,保证在工作过程中不涉及酒精和毒品,帮助外星人不管任何苦难或任意请求,选择"一方"在不同的外星种族中或者在调查的时候,同时不能参与性方面的活动和任何任意外星人种族成员.
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 THE ALIEN RACES
 
 外星人种族
 
-![Screenshot of "Alien_Race_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_cover.jpg)
+![Screenshot of "Alien_Race_cover"](https://a.knighter.xyz/assets/images/Alien_Race_cover.jpg)
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_ALLGRUULK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLGRUULK.jpg)
+![Screenshot of "Alien_Race_ALLGRUULK"](https://a.knighter.xyz/assets/images/Alien_Race_ALLGRUULK.jpg)
 
 ALLGRUULK(aka "the builders")
 
@@ -457,9 +457,9 @@ Last seen near Tokoyo(Japen) in 2005.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KIILY-TOKURT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KIILY-TOKURT.jpg)
+![Screenshot of "Alien_Race_KIILY-TOKURT"](https://a.knighter.xyz/assets/images/Alien_Race_KIILY-TOKURT.jpg)
 
 KILLY-TOKURT
 
@@ -493,9 +493,9 @@ Last seen on earth in July of 2008.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_PLEYADIYANS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_PLEYADIYANS.jpg)
+![Screenshot of "Alien_Race_PLEYADIYANS"](https://a.knighter.xyz/assets/images/Alien_Race_PLEYADIYANS.jpg)
 
 PLEYADIYANS
 
@@ -533,9 +533,9 @@ They continue to develop the neccessary mental skills to eventually reach their 
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KYLLIMIR-AUK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KYLLIMIR-AUK.jpg)
+![Screenshot of "Alien_Race_KYLLIMIR-AUK"](https://a.knighter.xyz/assets/images/Alien_Race_KYLLIMIR-AUK.jpg)
 
 
 KYLLIMIR-AUK
@@ -558,9 +558,9 @@ Last seen on Earth:December of 1989.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_KURS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_KURS.jpg)
+![Screenshot of "Alien_Race_KURS"](https://a.knighter.xyz/assets/images/Alien_Race_KURS.jpg)
 
 KURS(aka "God of Lands")KURS(也就是"领土之上帝")
 
@@ -598,9 +598,9 @@ They spend time immersed in a precious gold-like liquid that presumably extends 
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_HAV-HANNUAE-KONDRAS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_HAV-HANNUAE-KONDRAS.jpg)
+![Screenshot of "Alien_Race_HAV-HANNUAE-KONDRAS"](https://a.knighter.xyz/assets/images/Alien_Race_HAV-HANNUAE-KONDRAS.jpg)
 
 HAV-HANNUAE-KONDRAS
 
@@ -634,9 +634,9 @@ Last sighting:Scotland,in 1996.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_MAZAREK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAZAREK.jpg)
+![Screenshot of "Alien_Race_MAZAREK"](https://a.knighter.xyz/assets/images/Alien_Race_MAZAREK.jpg)
 
 MAZAREK
 
@@ -666,9 +666,9 @@ Last seen on Earth: August of 2001.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_AL-GRUUALIX"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AL-GRUUALIX.jpg)
+![Screenshot of "Alien_Race_AL-GRUUALIX"](https://a.knighter.xyz/assets/images/Alien_Race_AL-GRUUALIX.jpg)
 
 AL -GRUUALIX
 
@@ -702,9 +702,9 @@ Last sighting was near Lima(Peru) in December of 2004.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"]https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_THE_MESSENGERS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_THE_MESSENGERS.jpg)
+![Screenshot of "Alien_Race_THE_MESSENGERS"](https://a.knighter.xyz/assets/images/Alien_Race_THE_MESSENGERS.jpg)
 
 "THE MESSENGERS"(no image provided)信使(图片未提供)
 
@@ -734,9 +734,9 @@ Their ships have the shape of a "tear drop" and are silver in colour.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_RAMAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_RAMAY.jpg)
+![Screenshot of "Alien_Race_RAMAY"](https://a.knighter.xyz/assets/images/Alien_Race_RAMAY.jpg)
 
 RAMAY
 
@@ -876,9 +876,9 @@ Purpose of presence:unknown
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_ALLMAHULUK-START-163"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_ALLMAHULUK-START-163.jpg)
+![Screenshot of "Alien_Race_ALLMAHULUK-START-163"](https://a.knighter.xyz/assets/images/Alien_Race_ALLMAHULUK-START-163.jpg)
 
 ALLMAHULUK-STRAT-163
 
@@ -908,9 +908,9 @@ Last sighting:Portugal,May 2005.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_AINANNA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AINANNA.jpg)
+![Screenshot of "Alien_Race_AINANNA"](https://a.knighter.xyz/assets/images/Alien_Race_AINANNA.jpg)
 
 AINANNA(no image)
 
@@ -1002,9 +1002,9 @@ When they are sighted it is usually in the area known as the Bermuda Trangle.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_2017"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_2017.jpg)
+![Screenshot of "Alien_Race_2017"](https://a.knighter.xyz/assets/images/Alien_Race_2017.jpg)
 
 2017(no image) 2017(无图)
 
@@ -1084,9 +1084,9 @@ Last sighting on the Earth: near the Sea of Cortez,September 2002.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_JIGHANTIK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_JIGHANTIK.jpg)
+![Screenshot of "Alien_Race_JIGHANTIK"](https://a.knighter.xyz/assets/images/Alien_Race_JIGHANTIK.jpg)
 
 JIGHANTIK
 
@@ -1113,9 +1113,9 @@ Last sighting:near Huston,USA,Feburary 1 of 2003.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_JEFOK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_JEFOK.jpg)
+![Screenshot of "Alien_Race_JEFOK"](https://a.knighter.xyz/assets/images/Alien_Race_JEFOK.jpg)
 
 JEFOK
 
@@ -1153,9 +1153,9 @@ In 1965 they gave a message to the Human leaders that ran countries with nuclear
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_DORSAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_DORSAY.jpg)
+![Screenshot of "Alien_Race_DORSAY"](https://a.knighter.xyz/assets/images/Alien_Race_DORSAY.jpg)
 
 DORSAY
 
@@ -1186,9 +1186,9 @@ Last sighting on Earth: November 2001,Italian Alps.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_Alien_Race_MAGELL"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_MAGELL.jpg)
+![Screenshot of "Alien_Race_Alien_Race_MAGELL"](https://a.knighter.xyz/assets/images/Alien_Race_MAGELL.jpg)
 
 MAGELL
 
@@ -1222,9 +1222,9 @@ They are visited by their own kind (race) every 20 years...the next visit should
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
-![Screenshot of "Alien_Race_AKART"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_AKART.jpg)
+![Screenshot of "Alien_Race_AKART"](https://a.knighter.xyz/assets/images/Alien_Race_AKART.jpg)
 
 AKART
 
@@ -2384,7 +2384,7 @@ Last sighting:Near Munique,Germany in December 2004.
 
 * * *
 
-![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
 THE COUNCIL OF 5
 
