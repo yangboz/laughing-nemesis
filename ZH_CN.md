@@ -2388,4 +2388,40 @@ Last sighting:Near Munique,Germany in December 2004.
 
 THE COUNCIL OF 5
 
+Very little is known about the five alien races that are part of "The Council of 5".
+
+一点点枝节末梢关于外星人种族部分的“议会5委员”
+
+The races that are part of this Council(previous known as the "The Council of 9") have been protecting Earth and the Humans for as long as there are (alien) records of it.
+
+这些种族是议会5委员（之前也被叫做“议会9委员”） 一直在进行保护地球和人类在他们被长久作为外星人记录的时候.
+
+Some say that they have been protecting the planet even before Humans existed...for millions of years!
+
+有人说他们一直在进行保护星球甚至在人类存在之前，达百万年!
+
+An alien race reported that the "Council of 5" last met on Earth in 1944.
+
+一则外形种族报道关于“议会5委员”最后一次在地球在1944年.
+
+(note of Petro and myself:we found a hand-write note on the ARB dated July-2005 stating that the "Council of 5" is going to meet on Earth during the last 10 days of auguest of 2013.The same not also mentioned the fact that the presence and arrival of those 5 races could cause cosmic event that can affect Earth's atmosphere. And it also said that Humans would be seeing an increase of alien ships activity during that period)
+(Petro和我的笔记:我们发现了一个手写的笔记于时间是2005年7月，状况是“议会5委员” 正前往会面地球在最后2013年8月后10天.同样比别人提及道德事实是他们5种族的到来和显现可能导致星际事件能影响到地球的大气层.而且还说的人类将可能见到在哪个时间段增长中的外星飞船活动)
+
+(continuation of note:the note also states that the meeting of council is to discuss possible threats to Earth and Humans as well as the fact that so many "new" alien races have been visiting Earth "lately"...by "lately" the note states that that means -to the 5- for the past 500 years)
+
+(笔记持续:笔记同时也记载到委员会议是讨论可能对地球和人类的威胁，也就是事实上很多“新”的外星种族访问地球，迟早到近5年，或过去的500年)
+-//-
+
+According to several alien races the "Council of 5"(at the time "Council of 9")has monitored Human evolution since primordial times,since Humans were only a 1 cell marine organism an throughout all natural evolution,when Humans became primate-like creatures and beyond (after the Anunakene,aka Anunnaki,interference...).
+
+通过几个外星种族 “议会5委员”（在“议会9委员” 年代）监管了人类的进化从原始时代，追溯到人类刚从一个细胞，海洋生命器官直到所有自然进化，当人类开始类似灵长类更高级(after the Anunakene,aka Anunnaki,interference...).
+
+According to those same alien races all evolutionary sequences in all planets have a begining and an end(with the exception of minor details due mostly to radical weather changes).
+通过这些相同的外形种族的所有进化序列在所有星球从始至终（伴随着一些异常少许细节大部分是因为辐射导致的天气变化）
+After the Anunakene tampered with the DNA of "primates" and created Humans,the "Council of 5" decided to not only monitor but also to protected us,as they realized that one day Humans would be able to join the other alien races in development and enlightenment.
+
+
+
+
+
 
