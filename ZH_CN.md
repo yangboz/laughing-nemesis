@@ -2417,8 +2417,12 @@ According to several alien races the "Council of 5"(at the time "Council of 9")h
 通过几个外星种族 “议会5委员”（在“议会9委员” 年代）监管了人类的进化从原始时代，追溯到人类刚从一个细胞，海洋生命器官直到所有自然进化，当人类开始类似灵长类更高级(after the Anunakene,aka Anunnaki,interference...).
 
 According to those same alien races all evolutionary sequences in all planets have a begining and an end(with the exception of minor details due mostly to radical weather changes).
+
 通过这些相同的外形种族的所有进化序列在所有星球从始至终（伴随着一些异常少许细节大部分是因为辐射导致的天气变化）
 After the Anunakene tampered with the DNA of "primates" and created Humans,the "Council of 5" decided to not only monitor but also to protected us,as they realized that one day Humans would be able to join the other alien races in development and enlightenment.
+在安努纳奇人污染了“灵长类”的DNA基因并创造了人类，“议会5委员”决定不光监控而且要保护我们，而且他们意识到某天人类有能力加入到外星种族发展和启迪。
+
+
 
 
 
