@@ -2422,8 +2422,13 @@ According to those same alien races all evolutionary sequences in all planets ha
 After the Anunakene tampered with the DNA of "primates" and created Humans,the "Council of 5" decided to not only monitor but also to protected us,as they realized that one day Humans would be able to join the other alien races in development and enlightenment.
 在安努纳奇人污染了“灵长类”的DNA基因并创造了人类，“议会5委员”决定不光监控而且要保护我们，而且他们意识到某天人类有能力加入到外星种族发展和启迪。
 
+It is generally agreed that the EMETHER is the most important race not only of the Council but also amongst all known races! They are related to the Solipsi Rai,but much older and advanced in all levels.They were one of the Founder-Race of the Council.
 
+人们通常认为 EMETHER 是最重要的种族不光是委员会的，也是在已知所有种族的!他们和Solipsi Rai有关，而且更古老先进于各个层次。他们是种族委员会发起人
 
+They met with USA President D.Eisonhower in 3 different occasions...they also met with 2 High-Ranking USSR leader in 3 occasions...and they tried(they do not "force" anything upon Humans) to meet with USA President R.Nixon but he refused claiming that it would be too dangerous as they could maybe read his mind and find out about delicate national security secrets concerning the relations with USSR.
+
+他们会面过美国总统爱松豪威尔在3个不同场合...他们也见过2个高等级的苏联领导人在3个不同场合...而且他们尝试（他们不强迫通过任何人类）去会面美国总统理查德-尼克松，但是他拒绝宣布将会很危险如果读取他的思想和找到清秀的国家安全局秘书的秘密担心于当时和苏联的关系.
 
 
 
