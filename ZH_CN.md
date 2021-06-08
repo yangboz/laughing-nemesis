@@ -1491,7 +1491,7 @@ They have been keeping a close look at Human's development for the past 200 year
 
 Only 6 of them travel each time in their ships.
 
-在每次飞船太空旅行，他们当中仅有6个可以通过.
+在每次飞船太空旅行，他们当中仅有6个飞船可以通过.
 
 Last sightings: July-2002 and February-2004
 
@@ -2429,6 +2429,8 @@ It is generally agreed that the EMETHER is the most important race not only of t
 They met with USA President D.Eisonhower in 3 different occasions...they also met with 2 High-Ranking USSR leader in 3 occasions...and they tried(they do not "force" anything upon Humans) to meet with USA President R.Nixon but he refused claiming that it would be too dangerous as they could maybe read his mind and find out about delicate national security secrets concerning the relations with USSR.
 
 他们会面过美国总统爱松豪威尔在3个不同场合...他们也见过2个高等级的苏联领导人在3个不同场合...而且他们尝试（他们不强迫通过任何人类）去会面美国总统理查德-尼克松，但是他拒绝宣布将会很危险如果读取他的思想和找到清秀的国家安全局秘书的秘密担心于当时和苏联的关系.
+
+
 
 
 
