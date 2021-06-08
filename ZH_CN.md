@@ -2432,6 +2432,1374 @@ They met with USA President D.Eisonhower in 3 different occasions...they also me
 
 
 
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+ALIEN FILES
+
+![Screenshot of "Alien_Files_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_cover.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CNSA_1973_sent"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_1973_sent.png)
+
+In 2003 the China National Space Administration(CNSA) received the reply from the Pioneer Plaques sent in 1972 and 1973 aboard the Pioneer 10 and 11.
+
+Despite many requests and offers from the USA,the EU,Australia and Russia for China to share the information on the reply,the Chinese have done that yet.
+
+![Screenshot of "Alien_Files_CNSA_2003_reply"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_2003_reply.png)
+
+In 1985,3 alien races delivered documents and video to the UN Secretary-General Javier Perez de Cuellar showing evidence of several planets within Earth's solar system that had a daily average temperature of 32 degress celsius(89.6 Fahrenheit) and oceans.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CASE_737_LAFIA-NIGERIA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_737_LAFIA-NIGERIA.png)
+
+In August-21-1957 a caucasoid woman was found near Lafia.
+
+She was not dressed "matching" the area nor the time period.
+
+She was taken to a local Dutch land owner and "interrogated".
+
+Reports say that she claimed to be Captain Benjamin Briggs's wife Sarah...
+
+Captain Benjamin Briggs was the Captain of the Mary Celeste,a British-American merchant ship that was discovered on December-4-1872 in the Atlantic Ocean,unmanned and apparently abandoned.
+
+She commited suicide that same day.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Reptilian_shape-shifting_in_progress"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Reptilian_shape-shifting_in_progress.png)
+
+Reptilian shape-shifting in progress
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Reptilian_shape-shifting_in_progress"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Reptilian_shape-shifting_in_progress_02.png)
+
+Reptilian shape-shifting in progress(2)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Paca_Metpa_the_Maitre"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Paca_Metpa_the_Maitre.png)
+
+![Screenshot of "Alien_Files_Paca_Metpa"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Paca_Metpa.png)
+
+The Maitre have been involved in serveral tragedies throughout Human History....
+
+Some of the worst plagues were the knowledge and agreement of the Raptilians, who want the Human population to never go over 8 billion.
+
+![Screenshot of "Alien_Files_coin"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_coin.png)
+
+The Reptilians have abducted female Humans for thousands of years...most of their hybrid offspring are sent away to other planets that they have colonized...some stay on Earth where they become powerful members infiltrated in society.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Mars_abandom_surface_structure"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Mars_abandom_surface_structure.png)
+
+Mars and the Moon have been over mined and explored for the past 33.000 years...the races that do it are going deeper and deeper inside the planet to reach the raw material they want.
+
+Abandoned surface structures can be seen everywhere.
+
+![Screenshot of "Alien_Files_religion_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_religion_00.png)
+
+All Human religions have been created by alien races that want to keep Humans divided and the TRUTH about CREATION in secret.They roam the corridors of religious power are members of pseudo-religions-spiritual-Human organizations such as The Masons(most members of The Masons are clueless about the true intensions of a few)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_information_USSR_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_information_USSR_00.png)
+
+Since the information of the USSR its leaders were extremely interested about all the information they could get on aliens.They know of their existence and visit the death of Russia's Czar Nicholas II had been planned by aliens and their own circles of power had already been infiltrated.
+
+![Screenshot of "Alien_Files_mission_USSR_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_00.png)
+
+Several secret missions were deployed by Stalin to South and Central America after two Generals found a book that belonged to Czar Nichoals II's wife (Czarina Alexandra) and Grigori Rasputin,that had a map showing the location of alien bases.That map was later used in the school system,minus the base locations.
+
+![Screenshot of "Alien_Files_mission_USSR_9"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_9.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_mission_USSR_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_mission_USSR_01.png)
+
+The Philadelphia Experiment of 1943 did happen and it was successful after it was successful after the 3th attempt...futher attempts failed.
+
+![Screenshot of "Alien_Files_The_Philadelphia_Experiment_1943"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Philadelphia_Experiment_1943.png)
+
+Contrary to belief the experiment resulted from Albert Einstein's discovery of a manuscript (along with 1 metalic object) found in a cave system and brought to Spain by Columbus on his last voyage.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_manuscript_Columbus"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_manuscript_Columbus.png)
+
+The manuscript found by Columbus contained extremely technologically advanced schematic drawings and information and it was used to develop the unified thory by Einstein,where he described mathematically and physically the interrelated nature of the forces that comprise electromagentic radiation and gravity.Einstein had Illumination connections.
+
+![Screenshot of "Alien_Files_the_manuscript_symbol_Columbus"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_manuscript_symbol_Columbus.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_00.png)
+
+In 1933,near Vergiate Italy,an alien ship belonging to the race KALENIA crashed killing all its occupants.Inside many ancient Italien artifacts were found.(and alien ones)Benito Mussolini created a secret group to look at that incident and any other future ones related to alien races.That group still exists and it called GIO-1.And the artifacts found on the wreck were put in a museum and passed as if found at an archeological escavation.In the 1950 another ship crashed at the same location.
+
+![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_01.png) ![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1950_USA_President(D.Eisenhower)_and_BritishPM(WinstonChurchill)"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1950_USA_President(D.Eisenhower)_and_BritishPM(WinstonChurchill).png)
+
+During the early 1950's USA president D.Eisenhower and British PM Winston Churchill met several times to discuss the best ways to keep the alien presence on Earth away from the general public and from prying eyes.
+
+Together they created a stop secret task-force called "SILK".This task-force was so secretive that its leader was an Air Force General from english desent that belong to the military of Uruguary.
+
+Side by side with this General worked 2 USA and 2 English Secret Services agents.
+
+They were not allowed to write anything they investigated.All events and investigative progress wereh only reported face-to-face to both Churchill and/or Eisenhower.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_700AD_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_700AD_battles.png)
+
+From the 700 AD to the 19th century AD over 50 battles between alien races were fought on Earth's skies and witnessed by thousands of people.Many artists painted and carved these events,but the Catholic church searched,found and destoryed most of them.In the 20th century only less than 10 are available.
+
+![Screenshot of "Alien_Files_18thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_18thCentury_battles.png)
+
+18th century
+
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_Conver_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
+
+"As long as there are stars,there will be war" Race Maitre
+
+![Screenshot of "Alien_Files_19thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_19thCentury_battles.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1608_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1608_battles.png)
+
+August 1608:from Marseille and Nice(France) all the way to Genova(Italy) alien ships stop by the sea shore and crew memebers work on the vehicles openly for everyone to see.The Painting show 3 alien ships in Nice.(Note:this is original illustration.In the 1970's a magazine purposely inproved its quality in order to make it look contemporary and be able to debunk the event)
+
+Real witness of the event wrote the next day:
+
+"The inhabitants saw three strange luminous vessels which evolved at high speed above the city.The three machines stopped near the fortress and went down above the water where they caused the water boil and emit a red-orange vapor.To the great stupor to of the numberous witnesss,two humaniod beings with large heads an large luminous eyes,dressed in a red suit with silver scales,connected to the flying machine by tubes,engaged themselves in several hours of strange work."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_1608_battles_report"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_1608_battles_report.png)
+
+This is the original report from the alien event of August-1608 in Marseille,Nice and Genova.
+
+During your investigations in our territories of aboard you will ofen find misleading area/or falsified information concerning sightings and/or alien contact...this misleading and/or falsified information will concern mainly dates,places,witnesses,time and weathr conditions as the time of the event.
+This pattern of deception is common and has been practied for centuries either by religious organizations,secret sects,privately owned media and infiltrated Human governments.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_commemorative_coins"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_commemorative_coins.png)
+
+Images 1,2 and 3 show commemorative coins (no transaction value)from 3 different families.They depict 3 ships from 2 alien races.A western magazine tried to debunk these by stating that they "simply represented each family's shields".Further research proved that:
+
+1-the images did not match any of the family's shields.
+
+2-two different families would never use the same pattern.
+
+3-the images do not math any shield of the era.
+
+4-the images match well known and reported alien ships.
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CCTV_NewYork_USA"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CCTV_NewYork_USA.png)
+
+CCTV NEW YORK CITY,USA
+
+![Screenshot of "Alien_Files_Pre-historic_cave_pantings_south_of_France"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Pre-historic_cave_pantings_south_of_France.png)
+
+Pre-historic cave paintings in the south of Frances.The same ships can be found on wall cave paintings in Spain.
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_Pre-historic_cave_pantings_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Pre-historic_cave_pantings_01.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_base_of_KapushtinYar_Astrakhan_Volgograd"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_KapushtinYar_Astrakhan_Volgograd.png)
+
+Recovered alien ships in the base of Kapushtin Yar,Astrakan,Volgograd.3 seemed abandoned,2 result of crashes.
+
+![Screenshot of "Alien_Files_monitoring_Plasetsk_missile"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_monitoring_Plasetsk_missile.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The following are prints that were stolen in Sweden from APIS-USSR(Alien Presence Intelligence Services)by APIS-USA in conjuction with another foreign "special services".6 month later these print were(unkown reason)attributed to an american civilian as an "invention" and later as a "fake".These prints were (1 year later)copyrighted by a unknown "person".All the most technologically important prints were never found nor released/revealed.The scientific data on these prints was changed.Also,many faked illustrations were added to the original documents...the originals (stolen) had only 3 pages and the faked "copyrighted" one had over 20 pages.These are the original prints.
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_00.png)
+
+ * * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_stolen_APIS-USSR_print_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_04.png)
+
+![Screenshot of "Alien_Files_AKART_ship_crashed"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_AKART_ship_crashed.png)
+
+Photo (top) of AKART ship that crashed in Klisura,Bulgaria in 1971.
+
+Left and bottom the USSR's(failed) attempt(from now)at recreating an alien ship.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+We know that there are at least 2500 alien races...that number is likely to be much higher.
+
+One race (a crew member of the MAZAREK ship that crashed near Yekatrinburg,now Sverdlovsky)said that there are a few races that do not come to Earth because they know that the Reptilians and the Maitre are there...
+
+Some of those races that avoid Earth are as violent(if not more) as the Maitre...others are peaceful.
+
+So,having the Reptilians and the Maitre on Earth it is not always a bad thing...it keeps even worst races away.
+
+The balance is "found" by having the "Council of 5"protecting us.
+
+The MAZAREK crew member said the following:
+
+"There are many more races that would like to protect Human but they are not willing to start a war against Reptilians or Maitre over you..."
+
+![Screenshot of "Alien_Files_crew_of_MAZAREK_ship"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_crew_of_MAZAREK_ship.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+In the area known as the Bermuda Triangle there have been 2 permanent underwater bases for thousands of years.
+
+The first one was estabished by the MATRAX around 3.000 years ago while the second one has been there for over 6.000 years...race unknown.
+
+Several other races had bases there (or near)but have abandoned them.
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_abandoned_base"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_abandoned_base.png)
+
+This photo shows the ruins of an abandoned base...
+
+APIS-USA used their influence in the media to propagate the rumor that it was a sank submarine.Later APIS-USA created a CGI video about it.
+
+Remember:we cooperated with other APIS but we do not trust them or share information that is deemed confidential or top-secret.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+We stil have a very limited knowledge of the activites occuring in the Bermuda Triangle area.
+
+From alien reports we do know this:
+
+1-Abductions do occur in this area.
+
+2-Experimentations with Humans do occur in those areas.
+
+3-There is a "multi-dimensional space portal" that goes to and from the "Triangle"(not exactly inside the area known as the "triangle").
+
+4-There is a race that is planning on building/creating a new base in the "Triangle" in the year 2021(rumors say its the JIGHANTIK).
+
+5-It is the most important underwater region on Earth to those alien races.
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_base_report"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_base_report.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+These are some of the ship that were taken with the sole purpose (confirmed by 3rd party alien race) of abducting humans:
+
+-"Pickering" 1800(90 people),"Wasp" 1814(140),"Grampus"1843(48),"Atlanta" 1880 (290),"Raifuku Maru" 1924(?),"Stavenger"1931(43).
+
+![Screenshot of "Alien_Files_Bemuda_Triangle_base_report_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Bemuda_Triangle_base_report_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The crash of a Solipsi Rai ship in Roswell(USA) in July 7,1947 has been one of the most secretive APIS-USA case.Despite our best efforts we were never able to recover any evidence except for the top-secret photos on anex-3352-B.
+
+![Screenshot of "Alien_Files_Rosewell_anex_3352_B"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Rosewell_anex_3352_B.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Our agents estimate that near 65% of all aliens and UFO related websites on the internet(worldwide) are government (or government-linked) owned and ran.
+
+In the case of USA-only websites that number jumps to 83% and in Europe to 70%.
+
+In the USA 35% of those websites are ran by the USA,30% by the CIA,15% by the military,10% by APIS-USA,5% by the FBI and the rest by unknown government agencies.
+
+In Russia that number is around 33%.
+
+In China that number is around 95%.
+
+In Japan that number is around 70%.
+
+In Australia that number is around 25%.
+
+In India that number is around 55%.
+
+In Brazil that number is around 80%.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+NOTE from myself and Petro:the information above was added (had written) to the book in 2007.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+In the so called Area-51 there are members (number unkown) of 4 different races forcibly cooperating with Humans and Reptilians.
+
+As far as we know none of those members are either high-ranking or have a significant importance in their fields of expertise.
+
+The Maitre and Humans conduct security services and support to the base 24/7.
+
+![Screenshot of "Alien_Files_base_of_51Area"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_51Area.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_base_of_Moon_INDUGUTK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_INDUGUTK.png)
+
+There's more than 1 race conducting operations on the Moon...The main race  in the Moon are the INDUGUTK(aka "Tall White").
+
+The MYTHILAE also have at least 1 base (surface) on what we call "the dark side" of Earth's satellite.
+
+Many of the INDUGUTK human abductees are there...they end up either as slaves for mining (underground) or as what they call "John's" and "Mary's"...but their "official" name is:"students-M".
+
+The "students-M" are abductees that reveal a higher level of intelligence and are willing participants(or become that)in their agenda and plans.
+
+It is estimated that 4 in each 10 abductees become "students-M".The rest(60%) become slaves.Some of those slaves go on to work on other plants.
+
+The "students-M",after "training"(and whatever else).return to Earth to assume leadership roles in Human society.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+HOW MOST ALIEN BASE ON THE MOON ARE BUILD
+
+![Screenshot of "Alien_Files_base_of_Moon_underground"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_underground.png)
+
+AND HOW SOME LOOK FROM ABOVE
+
+![Screenshot of "Alien_Files_base_of_Moon_above"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_base_of_Moon_above.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_abduction_implants_in_APIS-RUSSIA_AGENT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_abduction_implants_in_APIS-RUSSIA_AGENT.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians-RUSSIA_AGENT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians.png)
+
+THE DAY HUMANS KILLED REPTILIANS
+
+In 856 BC,in the region of (now) Udmurtia,Russia,there was a confrontation between Humans and Reptilians.
+
+Reports state that a colony of Reptilians were building an underground base in the area.The Humans that lived in the area wrote:
+
+"Thunder by day,lightening at night...the earth shakes like in the days of old again...the snakes are everywhere,flying low and causing all creatures to die...the fish are gone and the rivers dry...we must fight or we will die."
+
+A member of the TENGRI-TENGRI,when asked by a Human leader(in the 20th century)if we Humans would ever have a "fighting chance" at defeating the Reptilians,said:
+
+"Your ancestors from ancient Slaviae using not much more then stones and sticks defeated them once already...since then you have learned much and done much...but you have lost your courage..."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The TENGRI-TENGRI did say that there's a rumor that the Humans did not act alone against the Reptilians...that they had an alien race helping them "behind the curtains"...However they also said that in the moment of battle supposedly there were only Humans fighting,not aliens.Either way,it shows what Humans can do and that "nothing is lost"...
+
+For posterity those Humans made these works of Art,a reminder of a great day for their culture...
+
+One thing though:the story goes that  200 years later that culture simply vanished...
+
+![Screenshot of "Alien_Files_the_day_of_Human_killed_Reptilians_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_the_day_of_Human_killed_Reptilians_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion.png)
+
+DAY OF SHAME
+
+THE TUNGUSKA EXPLOSION
+
+The Tunguska "incident" was a powerful explosion that occured in a desolate area near the Tunguska River in Russia,on June 30,1908.
+
+It is commonly believed to have been caused by the explosion of a large meteoroid in Earth's atmosphere about 5-10 Km(3-6 miles) high.
+
+The blast flattened an estimated 60 million trees over 2,150 square kilometers.
+
+But the Tunguska explosion did NOT have a cosmic birth and death...
+
+Here's the version of events that lead to the explosion...as told by a member of the TENGRI-TENGRI:
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.jpg)
+
+"For 5 days and 4 nights,near what you call Tunguska,the MAITRE had been fighting the DORSAY.
+
+Other races were starting to choose "sides" and were going to get involved.
+
+Even the "Council of 5" was worried with the escalation and seriouness of the event...
+
+On the day of that great explosion an EL-MANOUK ship came to Earth in order to try try ending the conflict...the EL-MANOUK are respected wherever we may go...they are wish and impartial.With them came a PLEYADIYAN ship...one of their biggest.
+
+The Maitre were warned by the Reptilians of the coming presence of the EL-Manouk and the Pleyadiyans...Earlier that day the Maitre has just shot down the last of the Dorsay ships...
+
+When the Pleyadiyans entered Earth's atmosphere they were attcked by 3 Maitre ships and destoryed.
+
+One El-Manouk ship was to also destroyed in space that day...
+
+And that is what happened in Tunguska."
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_01.png)
+
+THE DEVASTATION IN TUNGUSKA
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Also according to the Tengri-Tengri:
+
+"The Pleyadiyan ship that was destroyed that day near Tunguska was not supposed to come to Earth that day...they were going to a different destination,carrying the things they do...their Holy Rocks and other materials...the El-Manouk asked them to help them in solving the conflict...and they paid the price with the ending of this life of theirs..."
+
+In 2003 crystals with strange symbols,inscriptions and holes were found in the Tunguska region...futher lab analysis showed that their composition is made of certain Earth minerals as well as some elements that are not found  on Earth.
+
+![Screenshot of "Alien_Files_The_Tunguska_explosion_crystals"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_crystals.png)
+
+(NOTE OF MYSELF AND PETRO: in late 2008 the crystals were presented to the media by a Russian scientist.After much disccussion about the origin of the crystals,the matter lost interest and it is supposed that the crystals now rest in a private collection)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The CHULKAE(as aliens call them) are NOT an alien race as commonly accepted for many years by different APIS.
+
+Alien also do not know how they evolved or where they came from.
+
+The only things we know about them are:They exist in all continents,they live underground and are mostly nocturnal,they have a stuctured society(leaders and social classes),they have a culture indentity and supposedly they can live up to 250 years.
+
+None was never captured alive... ![Screenshot of "Alien_Files_CHULAKAE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_01.png)
+
+![Screenshot of "Alien_Files_CHULAKAE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_02.png)
+![Screenshot of "Alien_Files_CHULAKAE_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CASE_34-8-NB"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_34-8-NB.png)
+
+CASE 34-8-NB
+
+Illichivsk(ODESSA)-UKRAINE
+
+In October-2-1947 a confirmed Maitre landing happened...2 days later 12 sailors(on a fishing boat) disappeared.
+
+In 1982 one of the missing sailors (a Mr.Kyrylo,in 1947 only 16 years old) showed up in Maardu,Estonia.
+
+He reported that he had been "in the Moon".
+
+He died in 1983 from a self-inflicted wound.
+
+On his chest he carved (whith a knife) the following:
+
+"SS Waratah...they are still waiting..."
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_CASE_556-9-IOP"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CASE_556-9-IOP.png)
+
+CASE 556-9-OP(Oregon)
+
+HMS Sickle was a submarine of the Royal Navy.
+
+In June 12 of 1944 went missing while on patorl in the northern Agean...
+
+One member of the crew was found in 1971 near Bend,Oregon.
+
+In 1984 the became an advisor to USA President Ronald Reagan and he was often seen in the company of Minnesota Governor Harold Stassen.
+
+As far as we have been informed he is still alive.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Files_USA_politicians_connect_Reptilians"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_USA_politicians_connect_Reptilians.png)
+
+LIST OF AMERICAN POLITICIANS WITH CONNECTIONS TO THE REPTILIANS (confirmed)
+
+- Former U.S. Secretary of Defense Donald Rumsfeld
+
+- Former vice-President Dick Cheney
+
+- Former President George H.W.Bush
+
+- Former President George W.Bush
+
+- Former Secretary of State Heny Kissinger
+
+- Former President Bill Clinton
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+ALIEN SHIPS
+
+![Screenshot of "Alien_Ships_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_INDUGUTK_ON_THE_MOON"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_INDUGUTK_ON_THE_MOON.png)
+
+![Screenshot of "Alien_Ships_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_SMAD.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_01.png)
+
+![Screenshot of "Alien_Ships_Unkown_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_KIILY_TOKURT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_KIILY_TOKURT.png)
+
+![Screenshot of "Alien_Ships_Unkown_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_04.png)
+
+![Screenshot of "Alien_Ships_Unkown_05"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_05.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_06"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_06.png)
+
+![Screenshot of "Alien_Ships_Unkown_07"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_07.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_PURITAV-ILLUMU"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PURITAV-ILLUMU.png)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_PURITAV-ILLUMU"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PURITAV-ILLUMU.png)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN_01.png)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN_02.png)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_08"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_08.png)
+
+![Screenshot of "Alien_Ships_Unkown_09"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_09.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_10"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_10.png)
+
+![Screenshot of "Alien_Ships_KURS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_KURS.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_11"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_11.png)
+
+![Screenshot of "Alien_Ships_Unkown_12"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_12.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_13"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_13.png)
+
+![Screenshot of "Alien_Ships_Unkown_14"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_14.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_15"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_15.png)
+
+![Screenshot of "Alien_Ships_Unkown_16"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_16.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE.png)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE_01.png)
+
+![Screenshot of "Alien_Ships_MAITRE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAITRE_02.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK.png)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK.png)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AIRK_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_SMAD_01.png)
+
+![Screenshot of "Alien_Ships_PURITAV-ILLUMU"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PURITAV-ILLUMU_01.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_17"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_17.png)
+
+![Screenshot of "Alien_Ships_Unkown_18"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_18.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_19"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_19.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_PLEYADIYAN"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_PLEYADIYAN_04.png)
+
+![Screenshot of "Alien_Ships_AIRK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/AIRK_02.png)
+
+![Screenshot of "Alien_Ships_SMAD"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SMAD_03.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Race_Conver_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_20"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_20.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_21"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_21.png)
+
+![Screenshot of "Alien_Ships_Unkown_22"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_22.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_23"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_23.png)
+
+![Screenshot of "Alien_Ships_Unkown_24"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_24.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_25"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_25.png)
+
+![Screenshot of "Alien_Ships_KURS"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_KURS.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_26"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_26.png)
+
+![Screenshot of "Alien_Ships_Unkown_27"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_27.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_28"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_28.png)
+
+![Screenshot of "Alien_Ships_Unkown_29"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_29.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_JIGHANTIK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_JIGHANTIK.png)
+
+![Screenshot of "Alien_Ships_Unkown_30"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_30.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_31"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_31.png)
+
+![Screenshot of "Alien_Ships_AL-GRUUALIX"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_AL-GRUUALIX.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_32"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_32.png)
+
+![Screenshot of "Alien_Ships_Unkown_33"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_33.png)
+
+![Screenshot of "Alien_Ships_Unkown_34"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_34.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_MAZAREK"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_MAZAREK.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_35"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_35.png)
+
+![Screenshot of "Alien_Ships_KIILY-TOKURT"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_KIILY-TOKURT.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_36"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_36.png)
+
+![Screenshot of "Alien_Ships_RAMAY"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_RAMAY.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "Alien_Ships_Unkown_37"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_37.png)
+
+![Screenshot of "Alien_Ships_Unkown_38"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Ships_Unkown_38.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+ALIEN DIXIT
+
+THE FOLLOWING ARE QUOTES,PERSONAL MESSAGES(FACE TO FACE) AND/OR TRANSMISSIONS FROM SERVERAL ALIEN RACES OBTAINED VOLUNTARILY AND/OR UNDER CUSTODY AND DISTRESS.
+
+THEY WERE OBTAINED BY SERVERAL DIFFERENT APIS (ALIEN PRESENCE INTELLIGENCE SERVICES) FROM AROUND THE WORLD,BUT MAINLY FROM THE USSR,RUSSIA,USA,CHINA AND JAPEN.
+
+THESE STATEMENTS DO NOT EXPRESS THE OPINION OF ALL ALIEN RACES ON ANY OF THE MENTIONED ISSUES,IN FACT THEY DIFFER SUBSTANCIALLY ON SOME ISSUES,SPECIALLY WHEN DEALING WITH THE FEATUER OF THE HUMAN RACE
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+- 5 UNIVERSES,2500 SPECIES, 1 RACE
+
+- THE VIOLENCE AND HATRED THAT HUMANS HAVE INSIDE THEMSELVES,WHEN COMPARED TO THE VIOLENCE AND HATRED THAT THE RACE MAITRE HAS INSIDE THEMSELVES,IS LIKE COMPARING A FLOWER TO A VOLCANO
+
+- IN 2017 YOU WILL SEE THE BEGINING...IN 2022 YOU WILL SEE THE BEGINING OF THE END.UNLESS YOU ALL CHANGE...
+
+- ILLUMINATI PESTIS
+
+- WE HAVE GIVIN YOU SO MUCH AND YOU HAVE GIVEN YOURSELVES SO LITTLE...
+
+- SPACE AND TIME ARE NOTHING,WE ARE NOTHING...SHE IS EVERYTHING!
+
+- THE ARE 834 KNOWN SPECIES AT SAME LEVEL THAT YOU HUMANS WERE 3000 YEARS AGO...AND THEY ARE NOT VERY FAR AWAY FROM YOU...WE HAVE SHOWN SOME OF THE OTHERS TO YOU...NOW AND THEN.AND THEY ARE AFRAID OF YOU,OF WHAT YOU MAY BECOME.
+
+- THE SIGNS ARE ALL AROUND YOU,AND ABOVE YOU,AND INSIDE OF YOU...IN THE FIELDS,THE SKY AND THE STARS...AND IN THE EYES OF YOUR CHILDREN AND YOUR OLD ONES.
+
+- OF ALL SPECIES WE HAVE FOUND IN 3 UNIVERSES YOU ARE THE ONE WITH MOST SUICIDAL THOUGHTS.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+- YOUR PLANET ONLY HAS LESS THAN 1% OF WHAT MANY RACES THAT VISIT YOU WANT OR NEED...BUT YOUR PLANET IS IN THE RIGHT PLACE TO ALL OF THEM...
+
+- THE IMPORTANCE THAT 1000 RACES GIVE TO YOU IS THE SAME THAT YOU GIVE TO 1 GRAIN OF SAND IN THE DESERT...YOUR PLANET JUST HAPPEDNS TO BE IN THE DESERT...YOUR PLANET JUST HAPPEDN TO BE IN THE RIGHT PLACE!SOMETIMES THE WRONG PLACE...
+
+- YOUR HUMANS HAVE BEEN MISSLEAD AND YOU GREW UP TOO FAST
+
+- JUST LIKE YOU LEARN TO LOVE A STRANGER AFTER YOU MEET HIM,SOME OF US HAVEV LEARNED TO LOVE YOU...
+
+- WE WILL ALWAYS TO PROTECT YOU,UNTIL THE DAY YOU SAY "NO MORE"
+
+- WE CANNOT PROTECT YOU EVERYDAY...THERE ARE 5 KNOWN UNIVERSES IN 5 DIFFERENT DIMENSIONS TO PROTECT.
+
+- YOUR WORLD IS FULL OF LINES,FOLLOW THEM...
+
+- THE "COUNCIL OF 5" WILL BECOME THE "COUNCIL OF NONE"...AND THEN YOUR PLANET WILL FACE THE "COUNCIL OF DEATH"
+
+- NO OTHER RACE RIDICULES OTHER RACES AND EACH OTHER LIKE YOURS TOO...
+
+- SOON 1 YEAR WILL FEEL LIKE 1 MILLION TO YOU
+
+- AND IN GREECE YOU WILL FIND YOURS AND OUR PAST
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+- WE ,THE MAITRE,WILL BE THE NEW "SHE"...
+
+- YOU BELIEVE IN MANY THINGS THAT YOU DO NOT SEE EXCEPT FOR THE ONLY THING YOU DO NOT SEEN BUT SHOULD BELEIEVE IN...AND IT HAS ALWAYS BEEN ALL AROUND YOU...YOU JUST CHOOSE TO FORGET IT !
+
+- THERE IS MUCH WORST THEN THE RACE MAITRE...WE KNOW IT,WE HAVE SEEN THEM AND WE HAVE SEEN WHAT THEY HAVE DONE...AND THEY KNOW ABOUT YOU HUMANS...
+
+- THERE ARE SO MANY OF OURS IN YOU...
+
+- THERE ARE MANY OF US THAT YOU ADORE IN PLACES THAT YOU ADORE...AND IN PLACES THAT YOU HATE.
+
+- WE COULD STOP YOUR SUN FROM RISING TOMORROW.
+
+- 500 YEARS AND YOU ARE STILL LYING TO EACH OTHER...
+
+- SOON THIS DREAM OF YOURS WILL END...
+
+- YOU HAVE LOST 1000 YEARS IN THE PAST 50 YEARS
+
+- IF YOU GO TO MARS,MARS WILL COME TO YOU...THAT IS WHAT THEY DO.
+
+- YOUR CHILDREN THAT NOW LIVE INSIDE THE MOON DO NOT MISS YOU ANYMORE
+
+- THOUSANDS OF YOUR CHILDREN GO MISSING EVERY YEAR,NEVER TO BE FOUND AGAIN...AND YET YOU STILL EXCEPT YOU TELEVISION TO SAVE THEM WHEN INSIDE OF YOU YOU ALREADY KNOW THE ANSWER.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+- REPTILIANS AND MAITRE KILLED HIM...WITH YOUR HELP!
+
+- INNOCENT SECRET SECTS AND MALEVOLENT SECRET SECTS...AND YOU ADORE THEM BOTH..."SHE" IS NOT INSIDE OF YOU ANYMORE...
+
+- WE HAVE DIED FOR YOU AND YOU STILL FEAR US...
+
+- WHY THREATENING US IF WE CAME TO YOU OFFERING YOU LONG LIFE ?
+
+- YOU KILL EACH OTHER EVERYDAY IN THE NAME OF SAVING EACH OTHER...AND YOU HAVE BEEN DOING THAT SINCE BEFORE WE TALKED TO YOU.
+
+- THE ANUNNAKI CREATED YOU ONCE...THEY WILL NOT CREATE YOU AGAIN...WE WILL DISTORY YOU AND THE ANUNNAKI...AND THE TIME IS NEAR...
+
+- 8 YEARS IN 1 DAY...8 YEARS IN 1 DAY...8 YEARS IN 1 DAY...
+
+- ALMOST ALL RACE WENT TO WAR,BUT NOT WITH THEMSELVES...
+
+- YOUR MODERN GODS ARE CONFUSED...YOU ANCIENT GODS ARE FORGOTTEN.
+
+- LOOK AT THE STARS AND YOU WILL SEE US EVERYDAY LOOKING AT YOU.
+
+- IF YOU LOOK TOO FAR YOU WILL SEE SOMETHING YOU DO NOT WANT TO ...
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+THE NOTES & UPDATES
+
+![Screenshot of "Notes_and_updates_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Notes_and_updates_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+"The Kurs showed up again...washington,DC"
+
+"The Kurs are not supposed to be here...what is going on?"
+
+"Pleyadiyans in bora-bora...APIS Russia and USA ignored them...again!"
+
+"Why did the Maitre accepted guilt for 2000?"
+
+"More planes are being ready for 2017..."
+
+"Bush will do what Bush is told...like the one's before him"
+
+"3 more economies destoryed...why don't people see it??"
+
+"In August-2013,USA,try Alfalfa Market Road in Oregon"
+
+"Want to see? watch:54.7371 N,55.9667 E - Auguest 27"
+
+"JFK had DNA from the First race!!!!!! Call Yakim-3 !!!"
+
+"Why did they chose Putin to start the avalanche?"
+
+"The black will be white and the yellow will be red"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+(NOTE FROM MYSELF AND PETRO)
+
+THESE ARE SOME OF THE HAND WRITTEN NOTES AND UPDATES FOUND ON THE ALIEN RACES BOOK PAGES.
+
+THERE ARE LITTERALLY HUNDREDS OF THEM ...ABOUT 3 OR 4 IN EACH PAGE.
+
+WE CHOSE THE ONE'S THAT WE DEEMED MORE RELEVANT...
+
+OTHERWISE THIS PUBLICATION WOULD HAVE THOUSANDS OF PAGES...
+
+WE MAY ONE DAY PUBLISH ALL NOTES.
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+"AS Napoleon,Alexander and Hilter did,so will the rest"
+
+"How blind are people that they cannot see what's in the Grand Canyon?"
+
+"Connect London,Berlin and Cairo..."
+
+"2 km's south from the Vatican...small pink house...always for rent,never rented...they keep it there"
+
+"Charola dos Templarios..."
+
+"Why do Australian Humans do not seen September 23?"
+
+"Caravaggio has it"
+
+"The Pope and Castro met again last week...with Maitre"
+
+"The States are loosing ground now..."
+
+"Funny...Putin using Medvedev in front of everyday...ha ha ha!!!"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+SHE
+
+![Screenshot of "Book_Cover_SHE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_cover.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+Ever since Humans and aliens started cohabiting Earth,the main question Humans wanted answer was:
+
+"Who created the Universe and all of us?"
+
+![Screenshot of "SHE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_01.png)
+
+That question has been answered the same exact way by all the alien races that have spoken about it...
+
+The answer to that question has been sent several times,by 2 different races,to ALL Human religious leaders thorughout the centuries...
+
+The answer to that question has been sent several times,by 2 different races,to SOME Human political leaders throughout the centuries...as far as we know the last of those leaders to get the message was USA President JFK in October 3,1963.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+THE MESSAGE WAS SENT BY THESE 2 RACES
+
+![Screenshot of "SHE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_02.png)
+
+THE MESSAGE IS BOTH SIMPLE AND COMPLEX...
+
+INFORMATIVE BUT RASING QUESTIONS...
+
+OF HOPE BUT ALSO OF WARNING...
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_02.png)
+
+AND THIS IS THE MESSAGE:
+
+"This is a message of disambiguation to all of you men of the Human Kind.
+
+This is a message of redirection to all of you of the Human Kind.
+
+This is a message to enliven the minds of you men of the Human Kind.
+
+This is  a message that has been delivered from race to race since the Begining...just like it was delivered to us,it is now passed to you...
+
+Where there was no men of the Human Kind there were others of other kinds....
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+This is a message to you as well,Women of the Human Kind.
+
+Only the First race has Her purity...
+
+All other race must live the grievous,patient and laborious process of spiritual inner discovery and progression.
+
+Your (Our) collective History and Memory has suffered much in the Past...it has been erased,manipulated,suffocated,shifted,changed and molded according to the interests of a few.
+
+On your Planet as well as on Ours and the one's of other kinds in the Past...
+
+To the leaders of Kindoms and Countries and Regions:look at your religious leaders...
+
+To the religious leaders:look at yourselves and the one's like you,leaders of other religions,and over your Planet...
+
+Why do you wear your long robes and skirts,and all manners of Symbols that you do not understand?
+
+Why do you,religious leaders,men of the Human Kind,were your long robes and skirts not knowing why?
+
+Who,men of the Human kind,are you trying to be?
+
+Who,men of the Human kind,are you trying to represent?
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_03.png)
+
+this page (and images) is not original to the book.It was added by myself and Petro to serve as an illustration.
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+You,religious men of the Human Kind,and you,leaders of Kindoms and Countries and Regions,men of the Human Kind,have slowed your spiritual progress in half because you have divided your kind in half...
+
+No men of the Human Kind should destory what the women of the Human Kind have created.
+
+You have for many of your years relegated the women of the Human Kind to the role of slaves.
+
+And before your kind,many other kinds have done that...and before your kind,men of the Human Kind,many other kinds we have warned.
+
+For you to achieve what Yours,for you,Men and Women of the Human Kind,to be closer to Her,you must become one kind.
+
+![Screenshot of "SHE_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_04.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+Like many kinds before you,Men and Women of the Human Kind,you have a journey of restraint and constriction ahead of you...a journey of diffculty and resistance.
+
+But,unlike many kinds before yours,you are on a path of spiritual self destruction never experienced or self provoked by the other kinds before...
+
+And yet,you are so young...
+
+The Anunakene created you...but many kinds can destory you.
+
+You have 2.000 more(of yours) years to change...after that,men of Human Kind,it will be too late.
+
+Not too late for your survial BUT too late for your salvation !
+
+Your spiritual salvation...
+
+The "Council of 5" can only keep you safe from other kinds,NOT from yourselves...
+
+![Screenshot of "SHE_05"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_05.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+And we know that you have been betrayed,mislead and mistreated...
+
+And we know that after thousands of (your) years,by means of infiltration,disguisement and deception,you,men of Human Kind,have been fooled to believe the unacceptable by races that do not wish you well...
+
+But,before you,many other kinds suffered the same...and they too overcomed what seemed impossible to overcome...
+
+Your strength is inside of you and all around you...even now !
+
+Your strength is in Her...and She is inside YOU,men and women of the Human Kind...even now !
+
+And the answer is the place that you,Human-Kind,call Greece.
+
+And the answer is She...Artemis,Diana.
+
+And the answer have always been Her..
+
+And the answer, men and women of Human Kind,has been the same to all kinds...in all places!
+
+![Screenshot of "SHE_06"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_06.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+Some accept it,others don't...but the answer is only one:She!
+
+It has been this way from the begining and it will be this way,men and women from the Human Kind,until the end...
+
+It has been this way here and in all 4 universes and dimensions.
+
+"She" has many names...and many faces...and lives in many places..."She" is the Creator,NOT the destoryer...
+
+In your planet She was and it is called Diana...or Goddess Diana...in our planet she was called Alixi...
+
+She was also called (on other Planets) Lexae,Lixae,Dixae and Tixae...
+
+To you,of the Human Kind,she will always be Goddess Diana.
+
+"Search" for Her,learn of and from Her...She is the TRUTH,the Light,the Begining and but never the End,the Creator and never the Destoryer...The ONE all of us came from.
+
+And learn from your legendary Greek "Gods" of old...as they all did exist...as you exist and we exist.
+
+And we are one...and She is the One!
+
+SHE is the One that you,religious men from the Human Kind,lost in your robes and memory,want to be and try to replicate ...
+
+Men of the Human Kind:learn from Her...the Creator!"
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+![Screenshot of "SHE_07"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_07.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LIST OF POPES TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO 
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+![Screenshot of "SHE_08"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_08.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LIST OF ISLAMIC LEADERS TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
+
+![Screenshot of "SHE_09"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_09.png)
+
+- Allamah Majlisi Sani,1690
+
+- Ibrahim al-Fayyumi,in 1725
+
+- Mustafa al-Arusi,1864
+
+- Mustafa al-Maraghi,1935
+
+- Gad al-Haq,1982
+
+![Screenshot of "SHE_10"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_10.png)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+FINAL THOUGHTS
+
+![Screenshot of "FINAL_THOUGHTS_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_cover.png)
+
+![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+The future of the Human race is NOT in our hands at this point in time...one day it might be.
+
+All that we,real Humans,can do right now is to gather all the information we can about these alien races and their habits,to find out about their weaknesses and strenghts,so that when our future becomes our responsability we can be prepared  to fight for it if needed.
+
+Today we are just mere spectators watching a "theatre play"...some of us are watching the "play" completely unware that what we are watching is real...the actors (aliens) are real...the "play" (story-line) is real...the "stage" and "props" (alien worlds,alien ships and odd cosmic events) are real...
+
+Othe know that what they are watching  is real...but there's nothing that they can do about it...they cannot change the "play"...and certainly they cannot go to another "theatre" where the "play" is more of their liking...the only thing they can do is watch!
+
+Others (like you,me,your companion agents and a few more world wide) are spectators taking "notes" about what is in front of them...about the "play",about the "actors" and about the "setting" and "props"...we are learning about and writing about everything we see...so that one day when we have an opportunity to change the "story-line",we are prepared to do so...
+
+But beware...amongst the spectators there are many that are not paying attention to the "play" !
+
+They are only watching the other "spectators" around them,specially the one's "talking notes"...and those spectators look just like you and me...they can be seated right beside you...sometimes they even are the one's that gave you the ticket for the "play"...and sometimes they are your own parents!
+
+* * *
+
+![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
+
+LATEST UPDATE TO THE BOOK (added by myself)
+
+![Screenshot of "FINAL_THOUGHTS_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_01.png)
 
 
 
