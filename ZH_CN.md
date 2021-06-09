@@ -2644,9 +2644,13 @@ They were not allowed to write anything they investigated.All events and investi
 
 From the 700 AD to the 19th century AD over 50 battles between alien races were fought on Earth's skies and witnessed by thousands of people.Many artists painted and carved these events,but the Catholic church searched,found and destoryed most of them.In the 20th century only less than 10 are available.
 
+从公元前700年到公元后19世纪，超过50次战争在这些外星种族之间，发现在地区的天空被成千人民见证，许多艺术家绘画和雕刻了那些事件，但是天主教教堂发现和毁坏了他们其中大部分。在20世纪仅仅还有10个幸存
+
 ![Screenshot of "Alien_Files_18thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_18thCentury_battles.png)
 
 18th century
+
+18世纪
 
 
 * * *
@@ -2658,6 +2662,7 @@ From the 700 AD to the 19th century AD over 50 battles between alien races were 
 "As long as there are stars,there will be war" Race Maitre
 
 
+"随着星星苒起,迟早会有一战" Race Maitre
 
 
 ![Screenshot of "Alien_Files_19thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_19thCentury_battles.png)
@@ -2670,9 +2675,16 @@ From the 700 AD to the 19th century AD over 50 battles between alien races were 
 
 August 1608:from Marseille and Nice(France) all the way to Genova(Italy) alien ships stop by the sea shore and crew memebers work on the vehicles openly for everyone to see.The Painting show 3 alien ships in Nice.(Note:this is original illustration.In the 1970's a magazine purposely inproved its quality in order to make it look contemporary and be able to debunk the event)
 
+1608年8月从发过马赛到南希沿途到热那亚(意大利)外星飞船停在海岸，船员工作在交通工具上面开放于任何人可见，绘制了再南希的3艘飞船(Note笔记:this is original illustration.In the 1970's a magazine purposely inproved its quality in order to make it look contemporary and be able to debunk the event)
+(N笔记:这是一原始插画this is original illustration.1970年代一杂志故意的未被证实的它的画质为的是让它看起来像同年代的从而揭穿真相In the 1970's a magazine purposely inproved its quality in order to make it look contemporary and be able to debunk the event)
+
 Real witness of the event wrote the next day:
 
+真实的事件见证者隔天写到：
+
 "The inhabitants saw three strange luminous vessels which evolved at high speed above the city.The three machines stopped near the fortress and went down above the water where they caused the water boil and emit a red-orange vapor.To the great stupor to of the numberous witnesss,two humaniod beings with large heads an large luminous eyes,dressed in a red suit with silver scales,connected to the flying machine by tubes,engaged themselves in several hours of strange work."
+
+"The inhabitants saw three strange luminous vessels which evolved at high speed above the city.居民看到3个奇怪的发亮的船体在高速飞行在城市天空，这3个机器停在于靠近靠近要塞和掉下来在沸腾水面之上泛起红-橘色的蒸汽，The three machines stopped near the fortress and went down above the water where they caused the water boil and emit a red-orange vapor.To the great stupor to of the numberous witnesss,导致了无数见证者的大量昏迷,two humaniod beings with large heads an large luminous eyes,两个类人体有着大头和发亮的眼睛，dressed in a red suit with silver scales身穿红色制服和银色指甲,connected to the flying machine by tubes于飞行机器通过管道相连,engaged themselves in several hours of strange work.他们进行了好几个小时的奇怪工作"
 
 * * *
 
