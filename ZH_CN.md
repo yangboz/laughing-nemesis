@@ -24,7 +24,10 @@ INTRODUCTION TO THE ALIEN RACES BOOK
 
 ![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
-![Screenshot of "Book_Cover_00"](https://a.knighter.xyz/assets/images/Alien_Race_Conver_00.jpg)
+![Screenshot of "Book_Cover_00"](https://a.knighter.xyz/assets/images/
+
+
+_Race_Conver_00.jpg)
 
 ![Screenshot of "ARB_DS_Eye"](https://a.knighter.xyz/assets/images/ARB_DS_EYE.jpg)
 
@@ -2436,7 +2439,7 @@ They met with USA President D.Eisonhower in 3 different occasions...they also me
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-ALIEN FILES
+ALIEN FILES  外星人文件
 
 ![Screenshot of "Alien_Files_cover"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_cover.png)
 
@@ -2446,14 +2449,20 @@ ALIEN FILES
 
 ![Screenshot of "Alien_Files_CNSA_1973_sent"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_1973_sent.png)
 
+
 In 2003 the China National Space Administration(CNSA) received the reply from the Pioneer Plaques sent in 1972 and 1973 aboard the Pioneer 10 and 11.
 
+在2003年， 中国国家太空总署接收到了来自1972~1973年先驱号镀金铝板搭载于先驱10和11号上的回复。
+
 Despite many requests and offers from the USA,the EU,Australia and Russia for China to share the information on the reply,the Chinese have done that yet.
+
+尽管从美国，欧洲，澳大利亚和俄罗斯发来的请求和条款为的是要中国共享回复信息，中国没有做到。
 
 ![Screenshot of "Alien_Files_CNSA_2003_reply"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CNSA_2003_reply.png)
 
 In 1985,3 alien races delivered documents and video to the UN Secretary-General Javier Perez de Cuellar showing evidence of several planets within Earth's solar system that had a daily average temperature of 32 degress celsius(89.6 Fahrenheit) and oceans.
 
+在1985年，3个外形种族快递了一些文档和视频给联合国秘书长Javier Perez de Cuellar 展示了一些太阳系中的一些星球有平均温度32度（华氏89.6）和海洋
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
@@ -2462,15 +2471,28 @@ In 1985,3 alien races delivered documents and video to the UN Secretary-General 
 
 In August-21-1957 a caucasoid woman was found near Lafia.
 
+在1957年8月21 在尼日尼亚北部中心的Lafia小镇上发现了一位白种女人。
+
 She was not dressed "matching" the area nor the time period.
+她没有穿的“不合时宜”在哪个地区或哪个时代。
 
 She was taken to a local Dutch land owner and "interrogated".
 
+她被带到当地的荷兰土地领主那并“审问”。
+
+
 Reports say that she claimed to be Captain Benjamin Briggs's wife Sarah...
+
+据报道说她声称她是 Benjamin Briggs's船长 的妻子Sarah...
 
 Captain Benjamin Briggs was the Captain of the Mary Celeste,a British-American merchant ship that was discovered on December-4-1872 in the Atlantic Ocean,unmanned and apparently abandoned.
 
+Benjamin Briggs船长是 Mary Celeste号的船长，一个英-美商船，被发现于1872年12月4号在大西洋，无人而似乎被弃了。
+
+
 She commited suicide that same day.
+
+她在同一天自杀了。
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -2500,11 +2522,18 @@ Reptilian shape-shifting in progress(2)
 
 The Maitre have been involved in serveral tragedies throughout Human History....
 
+The Maitre种族涉及了好几起人类历史中的悲剧....
+
 Some of the worst plagues were the knowledge and agreement of the Raptilians, who want the Human population to never go over 8 billion.
+
+其中一些已知最差的瘟疫 是在和Raptilians种族达成协商一致的，他们不想人类人口数量超过8亿。
 
 ![Screenshot of "Alien_Files_coin"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_coin.png)
 
 The Reptilians have abducted female Humans for thousands of years...most of their hybrid offspring are sent away to other planets that they have colonized...some stay on Earth where they become powerful members infiltrated in society.
+
+
+爬虫族在近千年绑架过女性人类...大部分他们的混种后裔被送走到他们克隆过的其它星球...一些留在地球的成为渗透在社会中的一些权力成员。
 
 * * *
 
@@ -2514,11 +2543,18 @@ The Reptilians have abducted female Humans for thousands of years...most of thei
 
 Mars and the Moon have been over mined and explored for the past 33.000 years...the races that do it are going deeper and deeper inside the planet to reach the raw material they want.
 
+
+火星和月球已经被过度采矿和探索在过去的33000年...这些种族正在挖掘的更深在这些星球上直到他们想要的原始原料。
+
 Abandoned surface structures can be seen everywhere.
+
+被荒弃的表面建筑结构到处可见。
 
 ![Screenshot of "Alien_Files_religion_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_religion_00.png)
 
 All Human religions have been created by alien races that want to keep Humans divided and the TRUTH about CREATION in secret.They roam the corridors of religious power are members of pseudo-religions-spiritual-Human organizations such as The Masons(most members of The Masons are clueless about the true intensions of a few)
+
+所有人类的宗教信仰是被外星形种族创建，他们为的是保持人类的分隔和把创造的真相保密。他们制造了一些绯闻走廊有关宗教信仰的的能力是成为seudo-religions-spiritual-Human成员之一，例如Masons光明会(most members of The Masons are clueless about the true intensions of a few大部分的光明会会员对于少数真相很无知)
 
 * * *
 
@@ -2542,9 +2578,14 @@ Several secret missions were deployed by Stalin to South and Central America aft
 
 The Philadelphia Experiment of 1943 did happen and it was successful after it was successful after the 3th attempt...futher attempts failed.
 
+1943年确实发生了费城实验而且在实验成功后接着做了3次尝试...之后的尝试都失败了.
+
 ![Screenshot of "Alien_Files_The_Philadelphia_Experiment_1943"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Philadelphia_Experiment_1943.png)
 
 Contrary to belief the experiment resulted from Albert Einstein's discovery of a manuscript (along with 1 metalic object) found in a cave system and brought to Spain by Columbus on his last voyage.
+
+
+与坚定爱因斯坦实验发现的一个操作脚本(外加一个金属物体along with 1 metalic object)在一个挖空系统中被带到了西班牙通过哥伦布的最后一次海航。
 
 * * *
 
@@ -2564,6 +2605,11 @@ The manuscript found by Columbus contained extremely technologically advanced sc
 
 In 1933,near Vergiate Italy,an alien ship belonging to the race KALENIA crashed killing all its occupants.Inside many ancient Italien artifacts were found.(and alien ones)Benito Mussolini created a secret group to look at that incident and any other future ones related to alien races.That group still exists and it called GIO-1.And the artifacts found on the wreck were put in a museum and passed as if found at an archeological escavation.In the 1950 another ship crashed at the same location.
 
+
+在1933年，靠近意大利Vergiate，一个外星人属于 KALENIA种族飞船撞死了所有当地居民。其中很多古意大利人造物被找到。(and alien ones和外星人部分)
+
+贝尼托·墨索里尼创建了一个秘密集团目的是调查那起事故和其它未来和外形种族相关的。这个组织至今存在名叫GIO-1。而且这些造物被发现于博物馆的残骸和一些过去的考古发现。在1950年另一飞船坠毁在同一位置
+
 ![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_01.png) ![Screenshot of "Alien_Files_Vergiate_Italy_1933_crash_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_Vergiate_Italy_1933_crash_02.png)
 
 * * *
@@ -2574,11 +2620,21 @@ In 1933,near Vergiate Italy,an alien ship belonging to the race KALENIA crashed 
 
 During the early 1950's USA president D.Eisenhower and British PM Winston Churchill met several times to discuss the best ways to keep the alien presence on Earth away from the general public and from prying eyes.
 
-Together they created a stop secret task-force called "SILK".This task-force was so secretive that its leader was an Air Force General from english desent that belong to the military of Uruguary.
+早在1950年代早期美国艾森豪威尔总统和英国Winston Churchill会晤过几次讨论最好的方式来保守外星人在地球的出现远离公众视野或探秘窥探。
+
+
+Together they created a top secret task-force called "SILK".This task-force was so secretive that its leader was an Air Force General from english desent that belong to the military of Uruguary.
+
+他们一起成立了一个最高机密的军事任务叫"SILK"，这个军事任务如此机密至领导者是一名空军将军的英国后代隶属于乌克兰军队。
+
 
 Side by side with this General worked 2 USA and 2 English Secret Services agents.
 
+于将军并行工作的是2名美国和2名英国秘密机构特工
+
 They were not allowed to write anything they investigated.All events and investigative progress wereh only reported face-to-face to both Churchill and/or Eisenhower.
+
+他们被许可写下他们调查的任何事情，所有事件和调查进度当仅报道在丘吉尔和艾豪威尔面对面会晤中。
 
 * * *
 
@@ -2600,6 +2656,9 @@ From the 700 AD to the 19th century AD over 50 battles between alien races were 
 ![Screenshot of "Alien_Race_Conver_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_Conver_00.jpg)
 
 "As long as there are stars,there will be war" Race Maitre
+
+
+
 
 ![Screenshot of "Alien_Files_19thCentury_battles"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_19thCentury_battles.png)
 
