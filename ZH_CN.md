@@ -2697,6 +2697,11 @@ This is the original report from the alien event of August-1608 in Marseille,Nic
 During your investigations in our territories of aboard you will ofen find misleading area/or falsified information concerning sightings and/or alien contact...this misleading and/or falsified information will concern mainly dates,places,witnesses,time and weathr conditions as the time of the event.
 This pattern of deception is common and has been practied for centuries either by religious organizations,secret sects,privately owned media and infiltrated Human governments.
 
+
+这是 1608 年 8 月在马赛、尼斯和热那亚发生的外星人事件的原始报告。
+
+在您在我们的领土上进行调查期间，您经常会发现有关目击事件和/或外星人接触的误导性地区/或伪造信息……这种误导性和/或伪造信息将主要涉及日期、地点、证人、时间和天气条件，因为事件的时间。这种欺骗模式很常见，几个世纪以来一直被宗教组织、秘密教派、私营媒体和渗透到人类政府中。
+
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
