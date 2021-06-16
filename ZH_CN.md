@@ -2990,17 +2990,31 @@ One thing though:the story goes that  200 years later that culture simply vanish
 
 DAY OF SHAME
 
+耻辱日
+
 THE TUNGUSKA EXPLOSION
+
+通古斯大爆炸
 
 The Tunguska "incident" was a powerful explosion that occured in a desolate area near the Tunguska River in Russia,on June 30,1908.
 
+通古斯“事件”是 1908 年 6 月 30 日发生在俄罗斯通古斯河附近荒凉地区的一次强力爆炸。
+
 It is commonly believed to have been caused by the explosion of a large meteoroid in Earth's atmosphere about 5-10 Km(3-6 miles) high.
+
+人们普遍认为它是由地球大气层中大约 5-10 公里（3-6 英里）高的大型流星体爆炸引起的。
 
 The blast flattened an estimated 60 million trees over 2,150 square kilometers.
 
+爆炸将 2,150 平方公里的约 6,000 万棵树木夷为平地。
+
 But the Tunguska explosion did NOT have a cosmic birth and death...
 
+但是通古斯大爆炸并没有宇宙的诞生和死亡......
+
 Here's the version of events that lead to the explosion...as told by a member of the TENGRI-TENGRI:
+
+这是导致爆炸的事件版本……正如一位 TENGRI-TENGRI 成员所说：
 
 * * *
 
@@ -3009,8 +3023,11 @@ Here's the version of events that lead to the explosion...as told by a member of
 ![Screenshot of "Alien_Race_TENGRI-TENGRI"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Race_TENGRI-TENGRI.jpg)
 
 "For 5 days and 4 nights,near what you call Tunguska,the MAITRE had been fighting the DORSAY.
+“5天4夜，在你们所谓的通古斯卡附近，MAITRE一直在与DORSAY战斗。
 
 Other races were starting to choose "sides" and were going to get involved.
+
+其他种族开始选择“双方”并准备参与其中。
 
 Even the "Council of 5" was worried with the escalation and seriouness of the event...
 
