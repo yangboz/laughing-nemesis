@@ -3031,15 +3031,27 @@ Other races were starting to choose "sides" and were going to get involved.
 
 Even the "Council of 5" was worried with the escalation and seriouness of the event...
 
+就连“五委员会”也对事件的升级和严重性感到担忧……
+
 On the day of that great explosion an EL-MANOUK ship came to Earth in order to try try ending the conflict...the EL-MANOUK are respected wherever we may go...they are wish and impartial.With them came a PLEYADIYAN ship...one of their biggest.
+
+在那次大爆炸的那天，一艘 EL-MANOUK 船来到地球，试图尝试结束冲突......无论我们走到哪里，EL-MANOUK 都受到尊重......他们充满希望和公正。与他们一起来了一个 PLEYADIYAN船......他们最大的船之一。
 
 The Maitre were warned by the Reptilians of the coming presence of the EL-Manouk and the Pleyadiyans...Earlier that day the Maitre has just shot down the last of the Dorsay ships...
 
+Maitre 被爬虫人警告 EL-Manouk 和 Pleyadiyans 即将到来......那天早些时候，Maitre 刚刚击落了最后一艘 Dorsay 船只......
+
 When the Pleyadiyans entered Earth's atmosphere they were attcked by 3 Maitre ships and destoryed.
+
+当 Pleyadiyans 进入地球大气层时，他们被 3 艘 Maitre 船袭击并被摧毁。
 
 One El-Manouk ship was to also destroyed in space that day...
 
+当天，一艘 El-Manouk 飞船也将在太空中被摧毁......
+
 And that is what happened in Tunguska."
+
+这就是在通古斯发生的事情。”
 
 * * *
 
@@ -3057,13 +3069,20 @@ THE DEVASTATION IN TUNGUSKA
 
 Also according to the Tengri-Tengri:
 
+同样根据Tengri-Tengri：
+
 "The Pleyadiyan ship that was destroyed that day near Tunguska was not supposed to come to Earth that day...they were going to a different destination,carrying the things they do...their Holy Rocks and other materials...the El-Manouk asked them to help them in solving the conflict...and they paid the price with the ending of this life of theirs..."
 
+“那天在通古斯附近被摧毁的 Pleyadiyan 船那天不应该来到地球......他们将前往不同的目的地，携带他们所做的事情......他们的圣石和其他材料......El - 马努克要求他们帮助他们解决冲突……他们为此付出了生命的终结……”
+
 In 2003 crystals with strange symbols,inscriptions and holes were found in the Tunguska region...futher lab analysis showed that their composition is made of certain Earth minerals as well as some elements that are not found  on Earth.
+2003 年，在通古斯地区发现了带有奇怪符号、铭文和孔洞的晶体……进一步的实验室分析表明，它们的成分由某些地球矿物以及一些地球上没有的元素组成。
 
 ![Screenshot of "Alien_Files_The_Tunguska_explosion_crystals"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_The_Tunguska_explosion_crystals.png)
 
 (NOTE OF MYSELF AND PETRO: in late 2008 the crystals were presented to the media by a Russian scientist.After much disccussion about the origin of the crystals,the matter lost interest and it is supposed that the crystals now rest in a private collection)
+
+（我自己和佩特罗的注意事项：2008 年底，一位俄罗斯科学家向媒体展示了这些水晶。在对水晶的起源进行了多次讨论后，这件事失去了兴趣，推测水晶现在属于私人收藏）
 
 * * *
 
@@ -3071,9 +3090,15 @@ In 2003 crystals with strange symbols,inscriptions and holes were found in the T
 
 The CHULKAE(as aliens call them) are NOT an alien race as commonly accepted for many years by different APIS.
 
+CHULKAE（如外星人所称）并不是多年来被不同 APIS 普遍接受的外星种族。
+
 Alien also do not know how they evolved or where they came from.
 
+外星人也不知道他们是如何进化的，也不知道他们来自哪里。
+
 The only things we know about them are:They exist in all continents,they live underground and are mostly nocturnal,they have a stuctured society(leaders and social classes),they have a culture indentity and supposedly they can live up to 250 years.
+
+我们对它们的唯一了解是：它们存在于各大洲，它们生活在地下并且大多在夜间活动，它们有一个结构化的社会（领导者和社会阶层），它们具有文化特性，据说它们可以活到 250 岁。
 
 None was never captured alive... ![Screenshot of "Alien_Files_CHULAKAE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_CHULAKAE_01.png)
 
