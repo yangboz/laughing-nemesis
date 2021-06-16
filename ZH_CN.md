@@ -2710,14 +2710,24 @@ This pattern of deception is common and has been practied for centuries either b
 
 Images 1,2 and 3 show commemorative coins (no transaction value)from 3 different families.They depict 3 ships from 2 alien races.A western magazine tried to debunk these by stating that they "simply represented each family's shields".Further research proved that:
 
+图片 1,2 和 3 显示了来自 3 个不同家族的纪念币（无交易价值）。它们描绘了来自 2 个外星种族的 3 艘船。西方杂志试图通过声明它们“只是代表每个家族的盾牌”来揭穿这些。进一步的研究证明那：
+
 1-the images did not match any of the family's shields.
+
+1-图像与家庭的任何盾牌都不匹配。
 
 2-two different families would never use the same pattern.
 
+
+2-两个不同的家庭永远不会使用相同的模式。
+
 3-the images do not math any shield of the era.
+
+3-图像不能算作时代的任何盾牌。
 
 4-the images match well known and reported alien ships.
 
+4-图像与众所周知和报道的外星飞船相匹配。
  * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
@@ -2751,6 +2761,8 @@ Recovered alien ships in the base of Kapushtin Yar,Astrakan,Volgograd.3 seemed a
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 The following are prints that were stolen in Sweden from APIS-USSR(Alien Presence Intelligence Services)by APIS-USA in conjuction with another foreign "special services".6 month later these print were(unkown reason)attributed to an american civilian as an "invention" and later as a "fake".These prints were (1 year later)copyrighted by a unknown "person".All the most technologically important prints were never found nor released/revealed.The scientific data on these prints was changed.Also,many faked illustrations were added to the original documents...the originals (stolen) had only 3 pages and the faked "copyrighted" one had over 20 pages.These are the original prints.
+
+以下是 APIS-USA 在瑞典从 APIS-USSR（Alien Presence Intelligence Services）与另一外国“特殊服务”一起窃取的照片。 6 个月后，这些照片（不明原因）归属于一名美国平民，作为“发明”，后来被称为“赝品”。这些印刷品（1 年后）由一个不知名的“人”拥有版权。所有技术上最重要的印刷品从未被发现或发布/透露过。这些印刷品的科学数据已更改。此外，许多伪造的插图被添加到原始文件中......原件（被盗）只有3页，而伪造的“受版权保护”的有20多页。这些是原始印刷品。
 
 ![Screenshot of "Alien_Files_stolen_APIS-USSR_print_00"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_stolen_APIS-USSR_print_00.png)
 
