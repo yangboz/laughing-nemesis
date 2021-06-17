@@ -3186,16 +3186,25 @@ LIST OF AMERICAN POLITICIANS WITH CONNECTIONS TO THE REPTILIANS (confirmed)
 与爬行动物有关联的美国政治家名单（已确认）
 
 - Former U.S. Secretary of Defense Donald Rumsfeld
+- 
+美国前国防部长唐纳德拉姆斯菲尔德
 
 - Former vice-President Dick Cheney
+前副总统迪克·切尼
 
 - Former President George H.W.Bush
+- 
+Former President George H.W.Bush
+前总统乔治·H·W·布什
 
 - Former President George W.Bush
+- 前总统乔治·W·布什
 
 - Former Secretary of State Heny Kissinger
+- 前国务卿亨利·基辛格
 
 - Former President Bill Clinton
+- 前总统比尔克林顿
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
