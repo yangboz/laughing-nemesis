@@ -3113,19 +3113,34 @@ None was never captured alive... ![Screenshot of "Alien_Files_CHULAKAE_01"](http
 
 CASE 34-8-NB
 
+案例 34-8-NB
+
 Illichivsk(ODESSA)-UKRAINE
+
+伊利奇夫斯克（敖德萨）-乌克兰
 
 In October-2-1947 a confirmed Maitre landing happened...2 days later 12 sailors(on a fishing boat) disappeared.
 
+1947 年 10 月 2 日，一次确认的 Maitre 登陆发生了……2 天后，12 名水手（在一艘渔船上）失踪了。
+
 In 1982 one of the missing sailors (a Mr.Kyrylo,in 1947 only 16 years old) showed up in Maardu,Estonia.
+
+1982 年，一名失踪的水手（Kyrylo 先生，1947 年年仅 16 岁）出现在爱沙尼亚的马尔杜。
 
 He reported that he had been "in the Moon".
 
+他报告说他已经“在月球上”。
+
 He died in 1983 from a self-inflicted wound.
+
+他于 1983 年死于自伤。
 
 On his chest he carved (whith a knife) the following:
 
+他在胸前（用刀）雕刻了以下内容：
+
 "SS Waratah...they are still waiting..."
+“SS Waratah……他们还在等……”
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3137,15 +3152,26 @@ On his chest he carved (whith a knife) the following:
 
 CASE 556-9-OP(Oregon)
 
+CASE 556-9-OP（俄勒冈）
+
 HMS Sickle was a submarine of the Royal Navy.
+
+HMS Sickle 是皇家海军的一艘潜艇。
 
 In June 12 of 1944 went missing while on patorl in the northern Agean...
 
+1944 年 6 月 12 日，在北爱琴海巡逻时失踪……
+
 One member of the crew was found in 1971 near Bend,Oregon.
+一名船员于 1971 年在俄勒冈州本德附近被发现。
 
 In 1984 the became an advisor to USA President Ronald Reagan and he was often seen in the company of Minnesota Governor Harold Stassen.
 
+1984 年，他成为美国总统罗纳德·里根 (Ronald Reagan) 的顾问，经常与明尼苏达州州长哈罗德·斯塔森 (Harold Stassen) 在一起。
+
 As far as we have been informed he is still alive.
+
+据我们所知，他还活着。
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3156,6 +3182,8 @@ As far as we have been informed he is still alive.
 ![Screenshot of "Alien_Files_USA_politicians_connect_Reptilians"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_USA_politicians_connect_Reptilians.png)
 
 LIST OF AMERICAN POLITICIANS WITH CONNECTIONS TO THE REPTILIANS (confirmed)
+
+与爬行动物有关联的美国政治家名单（已确认）
 
 - Former U.S. Secretary of Defense Donald Rumsfeld
 
