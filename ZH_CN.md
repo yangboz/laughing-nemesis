@@ -2794,7 +2794,11 @@ The following are prints that were stolen in Sweden from APIS-USSR(Alien Presenc
 
 Photo (top) of AKART ship that crashed in Klisura,Bulgaria in 1971.
 
+1971 年在保加利亚克利苏拉坠毁的 AKART 船的照片（上）。
+
 Left and bottom the USSR's(failed) attempt(from now)at recreating an alien ship.
+
+左下角苏联（从现在开始）重建外星飞船的（失败）尝试。
 
 * * *
 
@@ -2802,17 +2806,32 @@ Left and bottom the USSR's(failed) attempt(from now)at recreating an alien ship.
 
 We know that there are at least 2500 alien races...that number is likely to be much higher.
 
+我们知道至少有 2500 个外星种族……这个数字可能要高得多。
+
 One race (a crew member of the MAZAREK ship that crashed near Yekatrinburg,now Sverdlovsky)said that there are a few races that do not come to Earth because they know that the Reptilians and the Maitre are there...
+
+一个种族（在叶卡特琳堡附近坠毁的 MAZAREK 船的一名船员，现在的斯维尔德洛夫斯基）说，有一些种族没有来到地球，因为他们知道爬虫人和梅特人在那里......
 
 Some of those races that avoid Earth are as violent(if not more) as the Maitre...others are peaceful.
 
+一些避开地球的种族与 Maitre 一样暴力（如果不是更多的话）……其他人则是和平的。
+
 So,having the Reptilians and the Maitre on Earth it is not always a bad thing...it keeps even worst races away.
+
+所以，在地球上拥有爬虫类人和 Maitre 并不总是一件坏事......它甚至可以让最糟糕的种族远离。
 
 The balance is "found" by having the "Council of 5"protecting us.
 
+通过让“五人委员会”保护我们来“找到”平衡。
+
 The MAZAREK crew member said the following:
 
+
+MAZAREK 船员说：
+
 "There are many more races that would like to protect Human but they are not willing to start a war against Reptilians or Maitre over you..."
+
+“还有更多的种族想要保护人类，但他们不愿意为了你而与爬虫族或迈特开战……”
 
 ![Screenshot of "Alien_Files_crew_of_MAZAREK_ship"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/Alien_Files_crew_of_MAZAREK_ship.png)
 
@@ -2822,7 +2841,11 @@ The MAZAREK crew member said the following:
 
 In the area known as the Bermuda Triangle there have been 2 permanent underwater bases for thousands of years.
 
+在被称为百慕大三角的地区，数千年来一直有两个永久性的水下基地。
+
 The first one was estabished by the MATRAX around 3.000 years ago while the second one has been there for over 6.000 years...race unknown.
+
+第一个是大约 3.000 年前由 MATRAX 建立的，而第二个已经存在了 6.000 多年......种族未知。
 
 Several other races had bases there (or near)but have abandoned them.
 
