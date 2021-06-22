@@ -3690,17 +3690,32 @@ THE NOTES & UPDATES
 
 "The Kurs showed up again...washington,DC"
 
+“库尔人又出现了……华盛顿特区”
+
 "The Kurs are not supposed to be here...what is going on?"
+
+“库尔人不应该在这里……这是怎么回事？”
 
 "Pleyadiyans in bora-bora...APIS Russia and USA ignored them...again!"
 
+“波拉波拉岛的 Pleyadiyans ......俄罗斯和美国 APIS 无视他们......再次！”
+
 "Why did the Maitre accepted guilt for 2000?"
+
+“为什么Maitre会为 2000 年认罪？”
 
 "More planes are being ready for 2017..."
 
+“更多的飞机正在为 2017 年做好准备……”
+
 "Bush will do what Bush is told...like the one's before him"
 
-"3 more economies destoryed...why don't people see it??"
+“布什会按照布什的吩咐去做……就像他面前的那个人一样”
+
+"3 more economies destoryed...why don't people see it?"
+
+
+“还有 3 个经济体遭到破坏……为什么人们看不到它？”
 
 "In August-2013,USA,try Alfalfa Market Road in Oregon"
 
