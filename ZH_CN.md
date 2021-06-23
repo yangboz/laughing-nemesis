@@ -3651,6 +3651,7 @@ THESE STATEMENTS DO NOT EXPRESS THE OPINION OF ALL ALIEN RACES ON ANY OF THE MEN
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 - REPTILIANS AND MAITRE KILLED HIM...WITH YOUR HELP!
+- 爬虫族和领主杀了他......在你的帮助下！
 
 - INNOCENT SECRET SECTS AND MALEVOLENT SECRET SECTS...AND YOU ADORE THEM BOTH..."SHE" IS NOT INSIDE OF YOU ANYMORE...
 
@@ -3719,13 +3720,25 @@ THE NOTES & UPDATES
 
 "In August-2013,USA,try Alfalfa Market Road in Oregon"
 
+“2013 年 8 月，美国，尝试俄勒冈州的苜蓿市场路”
+
 "Want to see? watch:54.7371 N,55.9667 E - Auguest 27"
+
+“想看吗？手表：54.7371 N，55.9667 E - 8 月 27 日”
 
 "JFK had DNA from the First race!!!!!! Call Yakim-3 !!!"
 
+“JFK 有第一场比赛的 DNA !!!!!! 呼叫 Yakim-3 !!!”
+
 "Why did they chose Putin to start the avalanche?"
 
+“他们为什么选择普京发动雪崩？”
+
 "The black will be white and the yellow will be red"
+
+
+“黑色是白色，黄色是红色”
+
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3736,16 +3749,27 @@ THE NOTES & UPDATES
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 (NOTE FROM MYSELF AND PETRO)
+（来自我自己和 PETRO 的笔记）
 
 THESE ARE SOME OF THE HAND WRITTEN NOTES AND UPDATES FOUND ON THE ALIEN RACES BOOK PAGES.
 
+这些是在外星人种族书籍页面上找到的一些手写笔记和更新。
+
 THERE ARE LITTERALLY HUNDREDS OF THEM ...ABOUT 3 OR 4 IN EACH PAGE.
+
+几乎有数百个……每页大约有 3 或 4 个。
 
 WE CHOSE THE ONE'S THAT WE DEEMED MORE RELEVANT...
 
+我们选择了我们认为更相关的那个……
+
 OTHERWISE THIS PUBLICATION WOULD HAVE THOUSANDS OF PAGES...
 
+否则，本出版物将有数千页……
+
 WE MAY ONE DAY PUBLISH ALL NOTES.
+
+我们可能有一天会发布所有笔记。
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3757,23 +3781,42 @@ WE MAY ONE DAY PUBLISH ALL NOTES.
 
 "AS Napoleon,Alexander and Hilter did,so will the rest"
 
+“就像拿破仑、亚历山大和希尔特那样，其他人也一样”
+
 "How blind are people that they cannot see what's in the Grand Canyon?"
+
+“人们有多盲目，以至于他们看不到大峡谷里的东西？”
 
 "Connect London,Berlin and Cairo..."
 
+“连接伦敦、柏林和开罗……”
+
 "2 km's south from the Vatican...small pink house...always for rent,never rented...they keep it there"
 
+“梵蒂冈以南 2 公里......粉红色的小房子......一直出租，从未出租......他们把它留在那里”
+
 "Charola dos Templarios..."
+“托盘两个圣殿骑士……”
 
 "Why do Australian Humans do not seen September 23?"
 
+“为什么澳大利亚人看不到 9 月 23 日？”
+
 "Caravaggio has it"
+
+“卡拉瓦乔拥有它”
 
 "The Pope and Castro met again last week...with Maitre"
 
+“教皇和卡斯特罗上周再次会面......与梅特雷”
+
 "The States are loosing ground now..."
 
+“美国现在正在失去阵地……”
+
 "Funny...Putin using Medvedev in front of everyday...ha ha ha!!!"
+
+“好笑……普京每天都当着梅德韦杰夫的面……哈哈哈！！！”
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3781,7 +3824,7 @@ WE MAY ONE DAY PUBLISH ALL NOTES.
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
-SHE
+SHE她
 
 ![Screenshot of "Book_Cover_SHE"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_cover.png)
 
