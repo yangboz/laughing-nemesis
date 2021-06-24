@@ -4113,8 +4113,11 @@ And we are one...and She is the One!
 我们是一……而她是一！
 
 SHE is the One that you,religious men from the Human Kind,lost in your robes and memory,want to be and try to replicate ...
+她是你，来自人类的宗教人士，迷失在你的长袍和记忆中，想要成为并试图复制......
 
 Men of the Human Kind:learn from Her...the Creator!"
+
+人类：向她学习……造物主！”
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -4131,6 +4134,7 @@ Men of the Human Kind:learn from Her...the Creator!"
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 LIST OF POPES TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO 
+消息已发送至的教皇名单
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -4143,16 +4147,21 @@ LIST OF POPES TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 LIST OF ISLAMIC LEADERS TO WHOM THE MESSAGE HAS BEEN TRANSMITTED TO
+已向其传递信息的伊斯兰领导人名单
 
 ![Screenshot of "SHE_09"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_09.png)
 
 - Allamah Majlisi Sani,1690
+阿拉玛议会萨尼，1690 年
 
 - Ibrahim al-Fayyumi,in 1725
+- 易卜拉欣·法尤米，1725 年
 
 - Mustafa al-Arusi,1864
+- 穆斯塔法·阿鲁西，1864 年
 
 - Mustafa al-Maraghi,1935
+- 穆斯塔法·马拉吉，1935
 
 - Gad al-Haq,1982
 
@@ -4173,6 +4182,7 @@ FINAL THOUGHTS
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 The future of the Human race is NOT in our hands at this point in time...one day it might be.
+在这个时间点，人类的未来并不掌握在我们手中……也许有一天会掌握。
 
 All that we,real Humans,can do right now is to gather all the information we can about these alien races and their habits,to find out about their weaknesses and strenghts,so that when our future becomes our responsability we can be prepared  to fight for it if needed.
 
