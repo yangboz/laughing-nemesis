@@ -3834,29 +3834,43 @@ SHE她
 
 Ever since Humans and aliens started cohabiting Earth,the main question Humans wanted answer was:
 
+自从人类和外星人开始同居地球以来，人类想要回答的主要问题是：
+
 "Who created the Universe and all of us?"
+“谁创造了宇宙和我们所有人？”
 
 ![Screenshot of "SHE_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_01.png)
 
 That question has been answered the same exact way by all the alien races that have spoken about it...
 
+所有谈论过这个问题的外星种族都以同样的方式回答了这个问题.....
+
 The answer to that question has been sent several times,by 2 different races,to ALL Human religious leaders thorughout the centuries...
 
+这个问题的答案已经由 2 个不同的种族多次发送给整个世纪以来的所有人类宗教领袖......
+
 The answer to that question has been sent several times,by 2 different races,to SOME Human political leaders throughout the centuries...as far as we know the last of those leaders to get the message was USA President JFK in October 3,1963.
+
+几个世纪以来，这个问题的答案已经由 2 个不同的种族多次发送给某些人类政治领导人……据我们所知，这些领导人中最后一位得到这个信息的是 1963 年 10 月 3 日的美国总统肯尼迪.
 
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 THE MESSAGE WAS SENT BY THESE 2 RACES
+消息是由这两个种族发送的
 
 ![Screenshot of "SHE_02"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_02.png)
 
 THE MESSAGE IS BOTH SIMPLE AND COMPLEX...
+消息既简单又复杂......
 
 INFORMATIVE BUT RASING QUESTIONS...
 
+信息丰富但问题重重……
+
 OF HOPE BUT ALSO OF WARNING...
+充满希望，但也有警告……
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3868,15 +3882,27 @@ OF HOPE BUT ALSO OF WARNING...
 
 AND THIS IS THE MESSAGE:
 
+这是信息：
+
 "This is a message of disambiguation to all of you men of the Human Kind.
+
+“这是给你们所有人的消除歧义的信息。
 
 This is a message of redirection to all of you of the Human Kind.
 
+这是对你们所有人的重定向信息。
+
 This is a message to enliven the minds of you men of the Human Kind.
+
+这是一个让你们人类的思想活跃起来的信息。
 
 This is  a message that has been delivered from race to race since the Begining...just like it was delivered to us,it is now passed to you...
 
+这是从一开始就从种族传递到种族的信息……就像传递给我们一样，现在传递给您……
+
 Where there was no men of the Human Kind there were others of other kinds....
+
+在没有人类的地方，就有其他种类的人......
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3888,13 +3914,23 @@ Where there was no men of the Human Kind there were others of other kinds....
 
 This is a message to you as well,Women of the Human Kind.
 
+这也是给你们的信息，人类女性。
+
 Only the First race has Her purity...
+
+只有第一种族有她的纯洁……
 
 All other race must live the grievous,patient and laborious process of spiritual inner discovery and progression.
 
+所有其他种族都必须经历精神内在发现和进步的痛苦、耐心和艰苦的过程。
+
 Your (Our) collective History and Memory has suffered much in the Past...it has been erased,manipulated,suffocated,shifted,changed and molded according to the interests of a few.
 
+您（我们）的集体历史和记忆在过去遭受了很多苦难……它已根据少数人的利益被抹去、操纵、窒息、转移、改变和塑造。
+
 On your Planet as well as on Ours and the one's of other kinds in the Past...
+
+在你们的星球以及我们的星球和过去的其他星球上......
 
 To the leaders of Kindoms and Countries and Regions:look at your religious leaders...
 
