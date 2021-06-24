@@ -3934,15 +3934,25 @@ On your Planet as well as on Ours and the one's of other kinds in the Past...
 
 To the leaders of Kindoms and Countries and Regions:look at your religious leaders...
 
+致诸国、国家和地区的领导人：看看你们的宗教领袖……
+
 To the religious leaders:look at yourselves and the one's like you,leaders of other religions,and over your Planet...
+
+致宗教领袖：看看你们自己，看看那些和你们一样的人，其他宗教的领袖，以及你们星球上的……
 
 Why do you wear your long robes and skirts,and all manners of Symbols that you do not understand?
 
+你为什么穿着长袍和裙子，还有你不明白的各种象征？
+
 Why do you,religious leaders,men of the Human Kind,were your long robes and skirts not knowing why?
+为什么你们宗教领袖，人类的男人，你们的长袍和裙子不知道为什么？
 
 Who,men of the Human kind,are you trying to be?
 
+你想成为什么样的人类？
+
 Who,men of the Human kind,are you trying to represent?
+你想代表谁？
 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
@@ -3953,6 +3963,7 @@ Who,men of the Human kind,are you trying to represent?
 ![Screenshot of "SHE_03"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_03.png)
 
 this page (and images) is not original to the book.It was added by myself and Petro to serve as an illustration.
+此页面（和图像）不是本书的原创。它是我和 Petro 添加的，用作插图。
 
 * * *
 
@@ -3961,14 +3972,21 @@ this page (and images) is not original to the book.It was added by myself and Pe
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 You,religious men of the Human Kind,and you,leaders of Kindoms and Countries and Regions,men of the Human Kind,have slowed your spiritual progress in half because you have divided your kind in half...
+你们人类宗教人士，你们，诸国、国家和地区的领袖，人类人类，你们的灵性进步减慢了一半，因为你们把你们的种族分成了两半……
 
 No men of the Human Kind should destory what the women of the Human Kind have created.
 
+任何人类的男人都不应破坏人类女性所创造的东西。
+
 You have for many of your years relegated the women of the Human Kind to the role of slaves.
+你多年来一直将人类女性贬低为奴隶的角色。
 
 And before your kind,many other kinds have done that...and before your kind,men of the Human Kind,many other kinds we have warned.
 
+在你的同类之前，许多其他种类已经这样做了……在你的同类之前，人类，我们已经警告过许多其他种类。
+
 For you to achieve what Yours,for you,Men and Women of the Human Kind,to be closer to Her,you must become one kind.
+为了你实现你的，为了你，人类的男人和女人，为了更接近她，你必须成为一种。
 
 ![Screenshot of "SHE_04"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_04.png)
 
@@ -3982,19 +4000,30 @@ For you to achieve what Yours,for you,Men and Women of the Human Kind,to be clos
 
 Like many kinds before you,Men and Women of the Human Kind,you have a journey of restraint and constriction ahead of you...a journey of diffculty and resistance.
 
+就像在你面前的许多人一样，人类的男人和女人，你有一段克制和束缚的旅程……一段困难和抵抗的旅程。
+
 But,unlike many kinds before yours,you are on a path of spiritual self destruction never experienced or self provoked by the other kinds before...
 
+但是，与之前的许多物种不同，你正走在一条其他物种从未经历过或自激的精神自我毁灭之路上……
+
 And yet,you are so young...
+然而，你还那么年轻……
 
 The Anunakene created you...but many kinds can destory you.
+Anunakene 创造了你……但有很多种类可以摧毁你。
 
 You have 2.000 more(of yours) years to change...after that,men of Human Kind,it will be too late.
+你还有 2.000（你的）年可以改变……在那之后，人类，为时已晚。
 
 Not too late for your survial BUT too late for your salvation !
+对你的生存来说还不算太晚，但对你的救赎来说太晚了！
 
 Your spiritual salvation...
+你的精神救赎...
 
 The "Council of 5" can only keep you safe from other kinds,NOT from yourselves...
+
+“五人委员会”只能让你免受其他种类的伤害，而不是你自己......
 
 ![Screenshot of "SHE_05"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_05.png)
 
@@ -4008,21 +4037,38 @@ The "Council of 5" can only keep you safe from other kinds,NOT from yourselves..
 
 And we know that you have been betrayed,mislead and mistreated...
 
+我们知道你被出卖、误导和虐待……
+
 And we know that after thousands of (your) years,by means of infiltration,disguisement and deception,you,men of Human Kind,have been fooled to believe the unacceptable by races that do not wish you well...
+
+我们知道，经过数千年（你们）的渗透、伪装和欺骗，你们人类，被那些不希望你们幸福的种族愚弄了相信不可接受的事情......
 
 But,before you,many other kinds suffered the same...and they too overcomed what seemed impossible to overcome...
 
+但是，在你之前，许多其他种类也遭受了同样的痛苦……他们也克服了似乎无法克服的……
+
 Your strength is inside of you and all around you...even now !
+
+你的力量就在你的内心和你周围……即使是现在！
 
 Your strength is in Her...and She is inside YOU,men and women of the Human Kind...even now !
 
+你的力量在她身上......而她在你身上，人类的男人和女人......即使是现在！
+
 And the answer is the place that you,Human-Kind,call Greece.
+答案就是你，人类，称之为希腊的地方。
 
 And the answer is She...Artemis,Diana.
 
+答案是她……阿尔忒弥斯，戴安娜。
+
 And the answer have always been Her..
 
+答案一直是她..
+
 And the answer, men and women of Human Kind,has been the same to all kinds...in all places!
+
+答案是，人类的男人和女人，对所有种类……在所有地方都是一样的！
 
 ![Screenshot of "SHE_06"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/SHE_06.png)
 
@@ -4033,24 +4079,38 @@ And the answer, men and women of Human Kind,has been the same to all kinds...in 
 ![Screenshot of "ARB_DS_Mark"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_Mark.jpg)
 
 Some accept it,others don't...but the answer is only one:She!
+有人接受，有人不接受……但答案只有一个：她
 
 It has been this way from the begining and it will be this way,men and women from the Human Kind,until the end...
+从一开始就是这样，以后也会这样，人类的男人和女人，直到最后……
 
 It has been this way here and in all 4 universes and dimensions.
 
+在这里以及在所有 4 个宇宙和维度中都是如此。
+
 "She" has many names...and many faces...and lives in many places..."She" is the Creator,NOT the destoryer...
+
+“她”有许多名字……许多面孔……生活在许多地方……“她”是创造者，而不是毁灭者……
 
 In your planet She was and it is called Diana...or Goddess Diana...in our planet she was called Alixi...
 
+在你们的星球上，她曾经被称为戴安娜……或女神戴安娜……在我们的星球上，她被称为阿丽西……
+
 She was also called (on other Planets) Lexae,Lixae,Dixae and Tixae...
+她也被称为（在其他行星上）Lexae、Lixae、Dixae 和 Tixae……
 
 To you,of the Human Kind,she will always be Goddess Diana.
+对你，属于人类，她永远是戴安娜女神。
 
 "Search" for Her,learn of and from Her...She is the TRUTH,the Light,the Begining and but never the End,the Creator and never the Destoryer...The ONE all of us came from.
+“寻找”她，向她学习，向她学习……她是真理，是光，是开始，但绝不是结束，是创造者，而不是毁灭者……我们所有人都来自于这个人。
 
 And learn from your legendary Greek "Gods" of old...as they all did exist...as you exist and we exist.
 
+并向您传说中的古希腊“众神”学习……因为它们确实存在……就像你存在，我们存在一样。
+
 And we are one...and She is the One!
+我们是一……而她是一！
 
 SHE is the One that you,religious men from the Human Kind,lost in your robes and memory,want to be and try to replicate ...
 
