@@ -4185,25 +4185,32 @@ The future of the Human race is NOT in our hands at this point in time...one day
 在这个时间点，人类的未来并不掌握在我们手中……也许有一天会掌握。
 
 All that we,real Humans,can do right now is to gather all the information we can about these alien races and their habits,to find out about their weaknesses and strenghts,so that when our future becomes our responsability we can be prepared  to fight for it if needed.
+我们，真正的人类，现在能做的就是收集所有关于这些外星种族和他们习惯的信息，找出他们的弱点和优势，这样当我们的未来成为我们的责任时，我们可以准备好战斗如果需要的话。
 
 Today we are just mere spectators watching a "theatre play"...some of us are watching the "play" completely unware that what we are watching is real...the actors (aliens) are real...the "play" (story-line) is real...the "stage" and "props" (alien worlds,alien ships and odd cosmic events) are real...
+今天，我们只是观看“戏剧”的观众……我们中的一些人正在观看“戏剧”，完全没有意识到我们正在观看的是真实的……演员（外星人）是真实的……“戏剧” （故事情节）是真实的……“舞台”和“道具”（外星世界、外星飞船和奇怪的宇宙事件）是真实的……
 
 Othe know that what they are watching  is real...but there's nothing that they can do about it...they cannot change the "play"...and certainly they cannot go to another "theatre" where the "play" is more of their liking...the only thing they can do is watch!
+其他人知道他们正在观看的是真实的……但他们对此无能为力……他们无法改变“戏剧”……当然他们也不能去另一个“戏剧”所在的“剧院”他们更喜欢……他们唯一能做的就是观看！
 
 Others (like you,me,your companion agents and a few more world wide) are spectators taking "notes" about what is in front of them...about the "play",about the "actors" and about the "setting" and "props"...we are learning about and writing about everything we see...so that one day when we have an opportunity to change the "story-line",we are prepared to do so...
+其他人（比如你、我、你的同伴特工和更多世界各地的人）是旁观者，他们正在“记录”他们面前的事物……关于“戏剧”、“演员”和“背景”和“道具”……我们正在学习和写我们所看到的一切……所以有一天当我们有机会改变“故事线”时，我们准备这样做……
 
 But beware...amongst the spectators there are many that are not paying attention to the "play" !
 
+但是要注意……在观众中，有很多人没有注意“比赛”！
+
 They are only watching the other "spectators" around them,specially the one's "talking notes"...and those spectators look just like you and me...they can be seated right beside you...sometimes they even are the one's that gave you the ticket for the "play"...and sometimes they are your own parents!
+
+他们只是在看周围的其他“旁观者”，特别是那个人的“谈话笔记”……而那些旁观者看起来就像你和我……他们可以坐在你旁边……有时他们甚至是自己的这给了你“玩”的门票......有时他们是你自己的父母！
 
 * * *
 
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 LATEST UPDATE TO THE BOOK (added by myself)
+本书的最新更新（由我自己添加）
 
 ![Screenshot of "FINAL_THOUGHTS_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_01.png)
-
-
 
 
