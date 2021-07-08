@@ -41,14 +41,14 @@ CONTENTS
 ![Screenshot of "ARB_DS_Mark"](https://a.knighter.xyz/assets/images/ARB_DS_Mark.jpg)
 
 INTRODUCTIONS TO THE ALIEN RACES BOOK 
-外星人种族书籍介绍
+外星人种族书籍介绍<a id="test1">测试1</a>
 
 THE ALIEN RACES BOOK
-外星人种族书籍
+外星人种族书籍 <a href="#arbs">外星人种族书籍</a>
 
 
 * THE ALIEN RACES
-外星人种族
+外星人种族 <a href="#ARB">外星人种族</a>
 * THE COUNCIL OF 5
 5大委员会
 * ALIEN FILES
@@ -71,9 +71,11 @@ THE ALIEN RACES BOOK
 
 * * *
 
+<a id="ARB">测试1</a>
+
 In 2004 I became friends with an Ukrainian guy called Petro that I met completely randomly at a bar by the beach...I was on holidays and he was there with some friends having some drinks.
 
-在2004年的时候，我在沙滩酒吧里偶然地认识了来自乌克兰的Petro,当时我正在度假，而他正与朋友一起喝酒.
+<a id="ARB">在2004年的时候，我在沙滩酒吧里偶然地认识了来自乌克兰的Petro,当时我正在度假，而他正与朋友一起喝酒.
 
 Anyway,we started talking with each other...our friendship started like that...he became a regular at my house where our families would get together.
 
@@ -420,7 +422,7 @@ SHOWING THIS BOOK TO ANYONE,TALKING ABOUT THIS BOOK TO ANYONE,TALKING ABOUT OR R
 
 THE ALIEN RACES
 
-外星人种族
+外星人种族 <a id="arbs">外星人种族</a>
 
 ![Screenshot of "Alien_Race_cover"](https://a.knighter.xyz/assets/images/Alien_Race_cover.jpg)
 
