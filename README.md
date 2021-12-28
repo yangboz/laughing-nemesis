@@ -43,3 +43,6 @@ ISBN-13: 978-1500769413
 
 ISBN-10: 150076941X 
 
+OpenAPI : https://app.swaggerhub.com/apis/yangboz/arsbook/1.0.0#/
+
+
