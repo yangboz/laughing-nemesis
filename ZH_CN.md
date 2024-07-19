@@ -4211,7 +4211,7 @@ They are only watching the other "spectators" around them,specially the one's "t
 ![Screenshot of "ARB_DS_Eye"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/ARB_DS_EYE.jpg)
 
 LATEST UPDATE TO THE BOOK (added by myself)
-本书的最新更新（由我自己添加）
+本书的最新更新（由我自己添加） or by CHATGPT
 
 ![Screenshot of "FINAL_THOUGHTS_01"](https://raw.githubusercontent.com/yangboz/laughing-nemesis/master/assets/images/FINAL_THOUGHTS_01.png)
 
