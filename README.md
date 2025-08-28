@@ -21,6 +21,11 @@ EN_US: (https://github.com/yangboz/laughing-nemesis/blob/master/EN_US.md)
 ZH_CN: (https://github.com/yangboz/laughing-nemesis/blob/master/ZH_CN.md)
 
 
+## formats
+================
+
+https://github.com/marp-team/marp-cli
+
 iBooks refs
 ================
 
